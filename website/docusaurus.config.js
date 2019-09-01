@@ -27,9 +27,6 @@ module.exports = {
       style: 'dark',
       copyright: `Copyright © ${new Date().getFullYear()} Zanaca. Feito com Docusaurus.  Icones feitos por Freepik em www.flaticon.com`,
     },
-    gtag: {
-      trackingID: 'UA-26034544',
-    },
   },
   presets: [
     [
@@ -46,4 +43,19 @@ module.exports = {
       },
     ],
   ],
+  plugins: [
+    [
+      '@docusaurus/plugin-google-analytics',
+      {
+        trackingID: 'UA-26034544',
+      },
+    ],
+    [
+    '@docusaurus/plugin-sitemap',
+    {
+      cacheTime: 600 * 1000, // 600 sec - cache purge period
+      changefreq: 'weekly',
+      priority: 0.5,
+    },
+  ]],
 };
