@@ -8,5 +8,5 @@ title: Mont-Roig Del Camp, Tarragona Province
 
 ## Hotéis ⭐️
 
--    [Camping Els Prats Village](https://www.hurb.com/aud/https://www.hurb.com/hoteis/mont-roig-del-camp/camping-els-prats-village-JNP-JP955909?cmp=18055) Diárias a partir de R$297.93
+-    [Camping Els Prats Village](https://www.hurb.com/aud/https://www.hurb.com/hoteis/mont-roig-del-camp/camping-els-prats-village-JNP-JP955909?cmp=18055) Diárias a partir de R$391.02
    > 
