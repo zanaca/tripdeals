@@ -8,5 +8,5 @@ title: Icaraí (Amontada), Ceará
 
 ## Hotéis ⭐️⭐️⭐️
 
--    [Pousada Melgaço](https://www.hurb.com/aud/https://www.hurb.com/hoteis/icarai-amontada/pousada-melgaco-15938?cmp=18055) Diárias a partir de R$190.65
+-    [Pousada Melgaço](https://www.hurb.com/aud/https://www.hurb.com/hoteis/icarai-amontada/pousada-melgaco-15938?cmp=18055) Diárias a partir de R$195.36
    > A Pousada Melgaço dispõe de acomodações ideais para casais e famílias. 
