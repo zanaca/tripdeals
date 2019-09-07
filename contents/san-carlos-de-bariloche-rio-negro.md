@@ -6,7 +6,7 @@ title: San Carlos de Bariloche, Rio Negro
 <center><img src="https://novo-hu.s3.amazonaws.com/reservas/ota/prod/hotel/320716/villa-huinid-lodge-001_20190515100126.jpg" alt="" /></center>
 
 
-## Hotéis 1 estrelas
+## Hotéis 1 estrelas - ⭐️
 
 -    [Antiguo Solar Bed & Breakfast](https://www.hurb.com/hoteis/san-carlos-de-bariloche/antiguo-solar-bed-breakfast-JNP-JP800488?cmp=18055) Diárias a partir de R$134.27
    > Ubicado a 800 m del Centro Cívico de Bariloche y de la Catedral de la ciudad, el Antiguo Solar queda a 14 km del Aeropuerto Internacional Teniente Luis Candelaria. La conexión Wi-Fi es gratuita.Las habitaciones están equipadas con calefacción central, esc
@@ -25,7 +25,7 @@ title: San Carlos de Bariloche, Rio Negro
 -    [Hotel Flamingo](https://www.hurb.com/hoteis/san-carlos-de-bariloche/hotel-flamingo-JNP-JP370120?cmp=18055) Diárias a partir de R$704.43
    > Este hotel localiza-se no centro de Bariloche, num lugar especial, a uma distância do Centro Cívico que pode ser percorrida a pé, mesmo no coração da cidade. O hotel oferece alojamento caloroso e acolhedor para que o viajante se sinta como se estivesse em
 
-## Hotéis 2 estrelas
+## Hotéis 2 estrelas - ⭐️⭐️
 
 -    [La Barraca Suites](https://www.hurb.com/hoteis/san-carlos-de-bariloche/la-barraca-suites-JNP-JP909805?cmp=18055) Diárias a partir de R$310.94
    > The Barraca Hostel Suites introduces an new way of accommodation, including new design and comfort. It is a mountain home with elegant interiors, period furniture and comfortable common areas. It has 6 double rooms with ensuite bathroom and an apartment f
@@ -61,7 +61,7 @@ Rooms
 -    [Viejo Cipres](https://www.hurb.com/hoteis/san-carlos-de-bariloche/viejo-cipres-JNP-JP702816?cmp=18055) Diárias a partir de R$154.04
    > Property Location With a stay at Apart Hotel El Viejo Ciprés in Bariloche (Playa Bonita), you&apos;ll be convenient to Cerro Otto Cable Car and Cerro Viejo Eco Park. This aparthotel is within close proximity of Capilla de San Eduardo and Cerro Otto.Rooms 
 
-## Hotéis 3 estrelas
+## Hotéis 3 estrelas - ⭐️⭐️⭐️
 
 -    [Villa Huinid Lodge](https://www.hurb.com/hoteis/san-carlos-de-bariloche/villa-huinid-lodge-JNP-JP579943?cmp=18055) Diárias a partir de R$297.08
    > Este hotel usufrui de uma localização privilegiada em Bariloche, a uma viagem de 5 minutos de carro do centro da cidade. Rodeado por florestas, montanhas e jardins, o hotel tem vista para o Lago Nahuel Huapi. A região de esqui Cerro fica apenas a 3 km de 
@@ -161,7 +161,7 @@ Um café, um bar, um serviço de babysitting, um serviço de cuidados e animaç�
    > Instalações
 Viajantes do hotel irão encontrar durante a sua estadia uma oferta de instalações e serviços. Os vários andares do estabelecimento são facilmente acessíveis de elevador. Os hóspedes que viajem em viatura própria poderão deixá-la no parque de e
 
-## Hotéis 4 estrelas
+## Hotéis 4 estrelas - ⭐️⭐️⭐️⭐️
 
 -    [Design Suites Bariloche](https://www.hurb.com/hoteis/san-carlos-de-bariloche/design-suites-bariloche-JNP-JP00003D?cmp=18055) Diárias a partir de R$310.21
    > Localização
@@ -198,7 +198,7 @@ O hotel conta com 50 quartos. Através da Internet sem fios nas àreas comuns os
 -    [Bosque del Nahuel](https://www.hurb.com/hoteis/san-carlos-de-bariloche/bosque-del-nahuel-JNP-JP257515?cmp=18055) Diárias a partir de R$813.63
    > O Bosque Del Nahuel é um pequeno hotel com instalações acolhedoras para que você possa aproveitar suas próximas férias na Patagônia Argentina. Nele encontrará um spa de 50 m² dedicado ao relaxamento, equipado com piscina climatizada, banheira de hidromass
 
-## Hotéis 5 estrelas
+## Hotéis 5 estrelas - ⭐️⭐️⭐️⭐️⭐️
 
 -    [Villa Huinid Bustillo](https://www.hurb.com/hoteis/san-carlos-de-bariloche/villa-huinid-bustillo-JNP-JP074505?cmp=18055) Diárias a partir de R$297.08
    > Este hotel de ski familiar desfruta de um ambiente encantador, a apenas 5 minutos de carro do centro da cidade de Bariloche. Os hóspedes encontrar-se-ão a apenas uma curta distância de uma variedade de estabelecimentos comerciais, bem como bares, restaura
