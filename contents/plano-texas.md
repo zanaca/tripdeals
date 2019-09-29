@@ -1,0 +1,86 @@
+---
+id: plano-texas
+title: Plano, Texas
+---
+
+<center><img src="http://photos.hotelbeds.com/giata/28/287104/287104a_hb_a_001.jpg" alt="" /></center>
+
+
+## Hotéis 2 estrelas - ⭐️⭐️
+
+-    [TownePlace Suites Dallas Plano](https://www.hurb.com/hoteis/plano/towneplace-suites-dallas-plano-JNP-JP184447?cmp=18055) Diárias a partir de R$363.68
+   > Este confortável hotel, pode encontrar-se em Plano Area. O imóvel consiste em 106 unidades de alojamento. A receção 24 horas por dia não está disponível. Não são permitidos animais de estimação nas instalações. 
+-    [Motel 6](https://www.hurb.com/hoteis/plano/motel-6-JNP-JP918722?cmp=18055) Diárias a partir de R$201.13
+   > Property Location When you stay at Motel 6 West Plano - Frisco, TX in Plano, you&apos;ll be close to Shops at Willow Bend. This eco-friendly motel is within the vicinity of University of Texas at Dallas and Mary Kay Museum.Rooms Make yourself at home in o
+-    [Extended Stay America - Dallas - Plano Parkway](https://www.hurb.com/hoteis/plano/extended-stay-america-dallas-plano-parkway-JNP-JP982622?cmp=18055) Diárias a partir de R$232.98
+   > Location.  br /Extended Stay Deluxe Dallas - Plano - Plano Parkway is located in Plano&apos;s Plano - Richardson neighborhood, close to University of Texas at Dallas. Additional area points of interest include Cavanaugh Flight Museum and Collin Creek Mall
+-    [Days Inn Dallas Plano](https://www.hurb.com/hoteis/plano/days-inn-dallas-plano-JNP-JP147432?cmp=18055) Diárias a partir de R$235.65
+   > Este encantador hotel fica em Plano Area. Este imóvel dispõe de um total de 62 unidades de alojamento. O acesso à internet por cabo está disponível para o conforto e conveniência dos hóspedes. Aqueles que não gostam de animais podem desfrutar de sua estad
+-    [Extended Stay America - Dallas - Plano](https://www.hurb.com/hoteis/plano/extended-stay-america-dallas-plano-JNP-JP981275?cmp=18055) Diárias a partir de R$266.26
+   > Property Location With a stay at Extended Stay America - Dallas - Plano in Plano, you&apos;ll be convenient to Shops at Willow Bend and Arbor Hills Nature Preserve. This hotel is within the vicinity of The Shops at Legacy and Hawaiian Falls The Colony.Roo
+-    [Comfort Inn Near Plano Medical Center](https://www.hurb.com/hoteis/plano/comfort-inn-near-plano-medical-center-JNP-JP148304?cmp=18055) Diárias a partir de R$267.98
+   > Este encantador hotel fica em Suburbs. As instalações contam com 64 quartos acolhedores. O acesso à internet por cabo está disponível para o conforto e conveniência dos hóspedes. Este estabelecimento não aceita animais de estimação. 
+-    [Fairfield Inn & Suites Dallas Plano](https://www.hurb.com/hoteis/plano/fairfield-inn-suites-dallas-plano-JNP-JP980277?cmp=18055) Diárias a partir de R$474.57
+   > Guarantee required for late arrival. (* Sorry, this information is not available in the selected language and is shown in EN) 
+-    [Magnuson Hotel Park Suites](https://www.hurb.com/hoteis/plano/magnuson-hotel-park-suites-JNP-JP091034?cmp=18055) Diárias a partir de R$228.99
+   > Este hotel tem uma localização maravilhosa em Plano. O hotel situa-se nas proximidades de várias atrações. Os hóspedes estarão perto do Corredor de Telecomunicações de Richardson. Podem encontrar-se várias empresas e grandes corporações nas imediações. Na
+-    [Super 8 Plano/Dallas Area](https://www.hurb.com/hoteis/plano/super-8-plano-dallas-area-JNP-JP082990?cmp=18055) Diárias a partir de R$211.69
+   > Este confortável hotel fica em Plano Area. O Super 8 by Wyndham Plano/Dallas Area dispõe de um total de 101 unidades. O acesso à internet por cabo está disponível para o conforto e conveniência dos hóspedes. As áreas comuns no Super 8 by Wyndham Plano/Dal
+-    [Hampton Inn Plano-North Dallas](https://www.hurb.com/hoteis/plano/hampton-inn-plano-north-dallas-JNP-JP017770?cmp=18055) Diárias a partir de R$422.11
+   > Este hotel localiza-se em Plano, no norte de Dallas, perto da zona de negócios de Plano e a cerca de 8 km da maioria das empresas. Situa-se também nas imediações de 6 grandes centros comerciais e de vários campos de golfe. As belíssimas atrações naturais 
+-    [Hampton Inn & Suites Dallas/Plano-East](https://www.hurb.com/hoteis/plano/hampton-inn-suites-dallas-plano-east-JNP-JP272441?cmp=18055) Diárias a partir de R$499.55
+   > Este agradável hotel, pode encontrar-se em Plano Area. As instalações contam com 114 acolhedoras unidades de alojamento. No Hampton Inn and Suites Plano-East, TX estão disponíveis ligações à internet por cabo e sem fios. A receção está aberta o dia todo. 
+
+## Hotéis 3 estrelas - ⭐️⭐️⭐️
+
+-    [Hyatt Place Dallas/Plano](https://www.hurb.com/hoteis/plano/hyatt-place-dallas-plano-JNP-JP806192?cmp=18055) Diárias a partir de R$462.68
+   > Este agradável hotel está situado em Plano Area. O estabelecimento consiste em 127 quartos de hóspedes. Este alojamento não é amigo dos animais. 
+-    [Studio 6](https://www.hurb.com/hoteis/plano/studio-6-JNP-JP306427?cmp=18055) Diárias a partir de R$193.71
+   > 
+-    [Southfork Hotel](https://www.hurb.com/hoteis/plano/southfork-hotel-JNP-JP175110?cmp=18055) Diárias a partir de R$243.95
+   > Este confortável hotel está situado em Plano Area. As 161 acolhedoras unidades tornam-se um local perfeito para relaxar no final do dia. Este alojamento não aceita animais de estimação. 
+-    [NYLO Plano at Legacy](https://www.hurb.com/hoteis/plano/nylo-plano-at-legacy-JNP-JP190887?cmp=18055) Diárias a partir de R$453.25
+   > Location.  br /NYLO Plano at Legacy is located in Plano&apos;s Plano - Richardson neighborhood, close to Stonebriar Centre Mall and Dr Pepper Ballpark. Additional area points of interest include Hawaiian Falls The Colony and Pizza Hut Park. Hotel Features
+-    [Staybridge plano](https://www.hurb.com/hoteis/plano/staybridge-plano-JNP-JP00480V?cmp=18055) Diárias a partir de R$523.66
+   > Localização do Estabelecimento O Staybridge Suites Plano - Richardson Area coloca-o a 3 km de alguns dos principais ex-líbris de Plano, incluindo Adventure Landing e University of Texas at Dallas. Este aparthotel encontra-se ainda nas imediações de outros
+-    [Springhill Suites Dallas Plano/Frisco](https://www.hurb.com/hoteis/plano/springhill-suites-dallas-plano-frisco-JNP-JP981986?cmp=18055) Diárias a partir de R$505.41
+   > Este agradável hotel está situado em Frisco. O imóvel está a 3. 0 km das principais zonas de entretenimento. O imóvel dispõe de um total de 152 unidades. Aqueles que ficam neste estabelecimento poderão manter-se atualizados graças ao acesso à internet por
+-    [Extended Stay America - Dallas - Plano Parkway - Medical Center](https://www.hurb.com/hoteis/plano/extended-stay-america-dallas-plano-parkway-medical-center-JNP-JP783671?cmp=18055) Diárias a partir de R$216.32
+   > Property Location When you stay at Extended Stay America - Dallas - Plano Parkway - Medical Ctr in Plano, you&apos;ll be in the suburbs and close to Shops at Willow Bend and University of Texas at Dallas. This hotel is within the vicinity of Mary Kay Muse
+-    [La Quinta Inn & Suites Dallas Plano West](https://www.hurb.com/hoteis/plano/la-quinta-inn-suites-dallas-plano-west-JNP-JP807472?cmp=18055) Diárias a partir de R$351.99
+   > O hotel fica a norte do centro de Dallas, na prestigiosa zona de Preston Road de West Plano. Encontra-se nas proximidades dos principais estabelecimentos comerciais, de restauração e de entretenimento, sendo perfeito para hóspedes em visita a sedes de emp
+-    [Courtyard Dallas Plano/Richardson](https://www.hurb.com/hoteis/plano/courtyard-dallas-plano-richardson-JNP-JP01288W?cmp=18055) Diárias a partir de R$376.00
+   > Instalações
+Um bar e uma sala de conferências estão à disposição dos viajantes do hotel. Os hóspedes que queiram manter-se em contacto com o mundo exterior terão acesso à Internet sem fios. Os hóspedes que viajem em viatura própria poderão deixá-la no par
+-    [Quality Inn & Suites Plano East - Richardson](https://www.hurb.com/hoteis/plano/quality-inn-suites-plano-east-richardson-JNP-JP097923?cmp=18055) Diárias a partir de R$237.78
+   > Este despretensioso hotel encontra-se em Richardson. O número total de unidades é de 250. 
+-    [La Quinta Inn & Suites Plano - Legacy](https://www.hurb.com/hoteis/plano/la-quinta-inn-suites-plano-legacy-JNP-JP379508?cmp=18055) Diárias a partir de R$342.63
+   > Ubicación del establecimiento Desde La Quinta Inn &amp; Suites Plano Legacy Frisco, en Plano, tendrás fácil acceso a The Shops at Legacy y a Reserva natural de Arbor Hills. Este hotel se encuentra cerca de Shops at Willow Bend y de Dr Pepper Ballpark. Hab
+-    [Residence Inn Dallas Plano](https://www.hurb.com/hoteis/plano/residence-inn-dallas-plano-JNP-JP456643?cmp=18055) Diárias a partir de R$390.09
+   > Este agradável hotel encontra-se em Plano Area. O estabelecimento dispõe de um total de 126 agradáveis quartos. Os viajantes não serão incomodados durante a sua estadia, uma vez que não são permitidos animais de estimação neste estabelecimento. 
+-    [Homewood Suites by Hilton Plano-Richardson](https://www.hurb.com/hoteis/plano/homewood-suites-by-hilton-plano-richardson-JNP-JP017764?cmp=18055) Diárias a partir de R$604.11
+   > Este confortável hotel fica em Plano Area. Inserido a 3. 7 km do centro da cidade, o alojamento permite-lhe um fácil acesso a tudo o que este destino tem para lhe oferecer. Os viajantes podem encontrar o campo de golf mais próximo a 7. 8 km do hotel. O nú
+-    [Residence Inn Dallas Plano/Richardson at Coit Rd.](https://www.hurb.com/hoteis/plano/residence-inn-dallas-plano-richardson-at-coit-rd-JNP-JP02665L?cmp=18055) Diárias a partir de R$427.05
+   > Tire partido das várias opções de entretenimento e lazer ao seu dispor, incluindo uma piscina interior, uma banheira de hidromassagem e uma sala de fitness, ideal para manter a forma. Entre as facilidades adicionais contam-se internet sem fios grátis, ser
+-    [Comfort Inn & Suites Plano East](https://www.hurb.com/hoteis/plano/comfort-inn-suites-plano-east-JNP-JP082985?cmp=18055) Diárias a partir de R$267.22
+   > Este confortável hotel, pode encontrar-se em Richardson. Estão disponíveis, no Comfort Inn &amp; Suites Plano East 137 quartos de hóspedes para conveniência dos hóspedes. 
+-    [Cambria hotel & suites Plano-Frisco](https://www.hurb.com/hoteis/plano/cambria-hotel-suites-plano-frisco-JNP-JP403148?cmp=18055) Diárias a partir de R$499.55
+   > Este agradável hotel fica em Frisco. O hotel dispõe de um total de 129 agradáveis unidades. 
+-    [Dallas/Plano Marriott at Legacy Town Center](https://www.hurb.com/hoteis/plano/dallas-plano-marriott-at-legacy-town-center-JNP-JP082983?cmp=18055) Diárias a partir de R$1,050.54
+   > Este agradável hotel está localizado em Plano Area. Existem um total de 356 unidades no Dallas/Plano Marriott at Legacy Town Center. O Dallas/Plano Marriott at Legacy Town Center foi construído em 2000. O Dallas/Plano Marriott at Legacy Town Center não of
+-    [Baymont Inn & Suites Plano](https://www.hurb.com/hoteis/plano/baymont-inn-suites-plano-JNP-JP02791R?cmp=18055) Diárias a partir de R$212.46
+   > Instalações
+O hotel oferece aos viajantes um total de 50 quartos. As comodidades incluem uma sala de conferências e um centro de negócios. A Internet sem fios nas áreas comuns possibilita aos hóspedes comunicarem com o mundo exterior. Os hóspedes que viaj
+-    [Courtyard Dallas Plano Parkway at Preston Road](https://www.hurb.com/hoteis/plano/courtyard-dallas-plano-parkway-at-preston-road-JNP-JP082982?cmp=18055) Diárias a partir de R$407.44
+   > Este confortável hotel encontra-se em Plano Area. O hotel possui 149 quartos de hóspedes acolhedores. O Courtyard Dallas Plano Parkway at Preston Road foi completamente renovado em 2013. O Courtyard Dallas Plano Parkway at Preston Road não tem disponível 
+-    [Homewood Suites by Hilton North Dallas-Plano](https://www.hurb.com/hoteis/plano/homewood-suites-by-hilton-north-dallas-plano-JNP-JP152072?cmp=18055) Diárias a partir de R$531.16
+   > Este agradável hotel encontra-se em Plano Area. Os visitantes podem encontrar o campo de golf mais próximo a 9. 8 km do imóvel. O número total de quartos de hóspedes é de 99. No Homewood Suites by Hilton North Dallas-Plano estão disponíveis ligações à int
+
+## Hotéis 4 estrelas - ⭐️⭐️⭐️⭐️
+
+-    [Hilton Dallas/Plano Granite Park](https://www.hurb.com/hoteis/plano/hilton-dallas-plano-granite-park-JNP-JP807461?cmp=18055) Diárias a partir de R$844.20
+   > Este agradável hotel fica em Plano Area. As instalações contam com 299 acolhedores quartos de hóspedes. O alojamento oferece acesso à internet para conveniência dos hóspedes. Todos os hóspedes que ficam neste imóvel apreciarão a receção aberta 24 horas po
+-    [Courtyard Dallas Plano in Legacy Park](https://www.hurb.com/hoteis/plano/courtyard-dallas-plano-in-legacy-park-JNP-JP082981?cmp=18055) Diárias a partir de R$620.04
+   > Este confortável hotel, pode encontrar-se em Plano Area. Estão disponíveis 153 unidades para conveniência dos hóspedes. Este alojamento foi renovado em 2013. O Courtyard Dallas Plano in Legacy Park não tem disponível um serviço de receção 24 horas por dia
+-    [Comfort Suites Plano East - Richardson](https://www.hurb.com/hoteis/plano/comfort-suites-plano-east-richardson-JNP-JP017744?cmp=18055) Diárias a partir de R$383.35
+   > Este moderno hotel goza de uma localização invejável em Plano. O hotel fica situado perto de muitas das principais atrações da área, assim como uma série de atividades recreativas, oportunidades comerciais, opções gastronómicas e eventos de entretenimento
