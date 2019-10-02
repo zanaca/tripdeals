@@ -1,0 +1,1 @@
+(window.webpackJsonp=window.webpackJsonp||[]).push([[261],{416:function(e){e.exports=JSON.parse('{"id":"deals","title":"Ofertas","description":"## Lista ofertas de hotéis por cidade","source":"/Users/zanaca/dev/github-hack-product/docusaurus/contents/deals.md","permalink":"/tripdeals/deals","sidebar":"docs","category":"Navegação"}')}}]);
