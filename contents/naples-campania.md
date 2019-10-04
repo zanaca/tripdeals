@@ -1,0 +1,539 @@
+---
+id: naples-campania
+title: Naples, Campania
+---
+
+<center><img src="http://photos.hotelbeds.com/giata/32/324989/324989a_hb_l_001.jpg" alt="" /></center>
+
+
+## Hotéis 1 estrelas - ⭐️
+
+-    [Hotel Iris](https://www.hurb.com/hoteis/naples/hotel-iris-JNP-JP801623?cmp=18055) Diárias a partir de R$186.10
+   > Este confortável hotel está localizado em Naples. O Iris garante uma estadia tranquila uma vez que conta com apenas 14 quartos de hóspedes. Não são permitidos animais de estimação no Iris. 
+-    [Sui Tetti Di Napoli](https://www.hurb.com/hoteis/naples/sui-tetti-di-napoli-JNP-JP117280?cmp=18055) Diárias a partir de R$281.03
+   > Property Location With a stay at Sui Tetti di Napoli in Naples (Historical Center), you&apos;ll be minutes from Stazione d&apos;arte Montecalvario and Castel Nuovo.  This guesthouse is within close proximity of Piazza Matteotti and Fontana di Monteoliveto
+-    [Be Italian at Duomo](https://www.hurb.com/hoteis/naples/be-italian-at-duomo-JNP-JP01306M?cmp=18055) Diárias a partir de R$246.86
+   > O registo de entrada começa às 14:00  O horário do registo de saída é 10:00
+-    [Caracciolo 10](https://www.hurb.com/hoteis/naples/caracciolo-10-JNP-JP771848?cmp=18055) Diárias a partir de R$294.25
+   > Caracciolo10 Bem vindo a Caracciolo10 em Napoli. O hotel dispõe de estacionamento exterior e interior. Os hospedes podem desfrutar de uma refeição no restaurante do hotel. Quartos no Caracciolo10. O secador do cabelo, o ferro e a tabua de passar estão dis
+-    [B&B La Storia di Napoli](https://www.hurb.com/hoteis/naples/b-b-la-storia-di-napoli-JNP-JP405269?cmp=18055) Diárias a partir de R$491.56
+   > Property Location Located in Naples (Naples City Centre), B&amp;B La Storia di Napoli is minutes from Chiesa Sant’Eligio and Santa Maria del Carmine.  This bed &amp; breakfast is within close proximity of Chiesa di Santa Maria del Carmine and Chiesa di Sa
+-    [Bed & Breakfast il Golfo](https://www.hurb.com/hoteis/naples/bed-breakfast-il-golfo-JNP-JP536050?cmp=18055) Diárias a partir de R$303.83
+   > Property Location Located in Naples (Naples City Centre), B&amp;B Il Golfo is minutes from Piazza Giuseppe Garibaldi and Castel Capuano.  This bed &amp; breakfast is within close proximity of Porta Capuana and Santa Maria del Carmine.Rooms Make yourself a
+-    [Olga Holiday House](https://www.hurb.com/hoteis/naples/olga-holiday-house-JNP-JP569749?cmp=18055) Diárias a partir de R$303.83
+   > 
+-    [M99 Design Rooms](https://www.hurb.com/hoteis/naples/m99-design-rooms-JNP-JP117588?cmp=18055) Diárias a partir de R$235.62
+   > Property Location With a stay at M99 Design Rooms, you&apos;ll be centrally located in Naples, steps from University of Naples Federico II and Chiesa di Sant&apos;Angelo A Nilo. This bed &amp; breakfast is within close proximity of La Statua del Nilo and 
+-    [Hotel Kennedy](https://www.hurb.com/hoteis/naples/hotel-kennedy-JNP-JP468728?cmp=18055) Diárias a partir de R$232.32
+   > 
+-    [Ida bed and breakfast](https://www.hurb.com/hoteis/naples/ida-bed-and-breakfast-JNP-JP439651?cmp=18055) Diárias a partir de R$187.77
+   > Não se aceitam animais de estimação O registo de entrada começa às 15:00 O horário do registo de saída é 10:00
+-    [Napul'è](https://www.hurb.com/hoteis/naples/napul-e-JNP-JP757106?cmp=18055) Diárias a partir de R$257.23
+   > Room service is available to travellers. Wireless internet access is available to guests in the public areas.
+. (* Sorry, this information is not available in the selected language and is shown in EN) 
+-    [Palazzo Magnocavallo B&B](https://www.hurb.com/hoteis/naples/palazzo-magnocavallo-b-b-JNP-JP133676?cmp=18055) Diárias a partir de R$641.06
+   > Property Location With a stay at Palazzo Magnocavallo B&amp;B in Naples (Historical Center), you&apos;ll be minutes from Fontana di Monteoliveto and Carthusian Monastery of San Martino. This bed &amp; breakfast is within close proximity of National Museum
+-    [Casa Vittoria](https://www.hurb.com/hoteis/naples/casa-vittoria-JNP-JP138172?cmp=18055) Diárias a partir de R$417.75
+   > Property Location With a stay at Casa Vittoria, you&apos;ll be centrally located in Naples, steps from Fontana di Monteoliveto and minutes from Piazza Matteotti. This apartment is within close proximity of Palazzo Pignatelli di Monteleone and Piazza del G
+-    [Maison Toledo 210](https://www.hurb.com/hoteis/naples/maison-toledo-210-JNP-JP01635J?cmp=18055) Diárias a partir de R$322.81
+   > Não se aceitam animais de estimação  O registo de entrada começa às 14:00  O horário do registo de saída é 11:00
+-    [B&B Cinquestelle](https://www.hurb.com/hoteis/naples/b-b-cinquestelle-JNP-JP723579?cmp=18055) Diárias a partir de R$191.66
+   > Property Location A stay at Cinquestelle places you in the heart of Naples, convenient to Porta Capuana and Cathedral of Naples. This bed &amp; breakfast is within close proximity of Piazza Giuseppe Garibaldi and Castel Capuano.Rooms Make yourself at home
+-    [iBed](https://www.hurb.com/hoteis/naples/ibed-JNP-JP704320?cmp=18055) Diárias a partir de R$281.40
+   > This hostel was built in 1600. The air-conditioned establishment comprises a total of 5 rooms. Services and facilities at the hotel include a breakfast room and room service. Wireless internet access in public areas (for a fee) allows travellers to stay c
+-    [Casa Tolentino - B&B Napoli](https://www.hurb.com/hoteis/naples/casa-tolentino-b-b-napoli-JNP-JP896115?cmp=18055) Diárias a partir de R$265.86
+   > Desfrute de fantásticas vistas a partir do jardim ou tire partido das várias comodidades e serviços ao seu dispor, incluindo internet sem fios grátis e apoio para excursões/compra de bilhetes.
+-    [B&B Grande Archivio](https://www.hurb.com/hoteis/naples/b-b-grande-archivio-JNP-JP884837?cmp=18055) Diárias a partir de R$305.87
+   > Property Location With a stay at B&amp;B Grande Archivio, you&apos;ll be centrally located in Naples, steps from Museo Civico Filangeri and Palazzo Marigliano. This bed &amp; breakfast is within close proximity of San Gregorio Armeno Church and University
+-    [Le 4 Stagioni B&B Bed And Breakfast Napoli, Centro Storico](https://www.hurb.com/hoteis/naples/le-4-stagioni-b-b-bed-and-breakfast-napoli-centro-storico-JNP-JP881978?cmp=18055) Diárias a partir de R$129.14
+   > Le 4 Stagioni Bem vindo a Le 4 Stagioni em Napoli. Estacionamento exterior disponivel. Os hospedes podem desfrutar de uma refeição no restaurante do hotel. Caracteristicas dos quartos Le 4 Stagioni. A uma politica de não fumante no hotel.
+-    [Barbarella Suite](https://www.hurb.com/hoteis/naples/barbarella-suite-JNP-JP524044?cmp=18055) Diárias a partir de R$394.97
+   > Property Location With a stay at Barbarella Suite, you&apos;ll be centrally located in Naples, steps from Piazza Matteotti and minutes from Castel Nuovo.  This guesthouse is within close proximity of Naples Town Hall and Piazza del Municipio.Rooms Make yo
+-    [Guest House Rosy](https://www.hurb.com/hoteis/naples/guest-house-rosy-JNP-JP560454?cmp=18055) Diárias a partir de R$173.62
+   > Property Location A stay at Rosy places you in the heart of Naples, walking distance from Porta Capuana and Castel Capuano. This hotel is within close proximity of Piazza Giuseppe Garibaldi and Bourbon Hospice for the Poor.Rooms Make yourself at home in o
+-    [Napoliday](https://www.hurb.com/hoteis/naples/napoliday-JNP-JP771607?cmp=18055) Diárias a partir de R$306.68
+   > Napoliday is located in the heart of Naples City, in the Chiaia quarter, seafront area, the most exciting and fashion area, where best restaurants and high fashion shops are concentrated.   Ea. (* Sorry, this information is not available in the selected l
+-    [Le Villanelle B&B](https://www.hurb.com/hoteis/naples/le-villanelle-b-b-JNP-JP01695W?cmp=18055) Diárias a partir de R$250.94
+   > Algumas das comodidades e serviços em destaque incluem internet sem fios grátis e um televisor no espaço comum.
+-    [B&B Bernini 20](https://www.hurb.com/hoteis/naples/b-b-bernini-20-JNP-JP626904?cmp=18055) Diárias a partir de R$284.84
+   > Localização do Estabelecimento Situado em Naples (Vomero), B&amp;B Bernini 20 o fica ao virar da esquina de dois dos mais importantes ex-líbris da região: Museo Nazionale della Ceramica Duca di Martina e Villa Floridiana.  Este bed &amp; breakfast encontr
+-    [B&B Domus Armenio](https://www.hurb.com/hoteis/naples/b-b-domus-armenio-JNP-JP496597?cmp=18055) Diárias a partir de R$273.44
+   > 
+-    [B&B La Dimora Di Nettuno](https://www.hurb.com/hoteis/naples/b-b-la-dimora-di-nettuno-JNP-JP788977?cmp=18055) Diárias a partir de R$322.81
+   > A pensão situa-se centralmente no animado bairro de &quot;&quot;Piedigrotta&quot;&quot;, famoso pelos seus disfarces festivos originais. Em Setembro encontrará aqui música, luzes e fogo de artifício ao longo do fantástico golfe de Nápoles, partindo do Cas
+-    [B & B Rochel](https://www.hurb.com/hoteis/naples/b-b-rochel-JNP-JP521513?cmp=18055) Diárias a partir de R$139.53
+   > Localização do Estabelecimento B&amp;B Rochel o abre-lhe as portas a uma estadia bem no centro de Naples, ao virar da esquina de alguns dos mais badalados ex-líbris locais, incluindo Igreja de Girolamini e San Lorenzo Maggiore. Este bed &amp; breakfast en
+-    [Carafa Suite](https://www.hurb.com/hoteis/naples/carafa-suite-JNP-JP679885?cmp=18055) Diárias a partir de R$135.97
+   > B&amp;b Carafa Suite Uma recepção calorosa espera por voce no pequeno B&amp;b Carafa Suite em Napoli. Refeição disponiveis no hotel , que tem o seu propio restaurante. Caracteristicas dos quartos B&amp;b Carafa Suite. E permitido fumar em alguns quartos e
+-    [Re Di Napoli Bed](https://www.hurb.com/hoteis/naples/re-di-napoli-bed-JNP-JP724245?cmp=18055) Diárias a partir de R$251.79
+   > Set 100 metres from Naples&apos; Cathedral, Re Di Napoli Bed is located in the historical San Lorenzo district. The property offers free Wi-Fi access and a sun terrace. Air-conditioned rooms at the Re Di Napoli all come with a TV and DVD player. The priva
+-    [Bed & Breakfast Casa Mariella](https://www.hurb.com/hoteis/naples/bed-breakfast-casa-mariella-JNP-JP892689?cmp=18055) Diárias a partir de R$216.48
+   > Property Location With a stay at Casa Mariella, you&apos;ll be centrally located in Naples, steps from Teatro Augusteo and La chiesa San Michele a Port&apos;Alba.  This bed &amp; breakfast is within close proximity of Palazzo Zevallos Stigliano and Palazz
+-    [Naples Royal House B&B](https://www.hurb.com/hoteis/naples/naples-royal-house-b-b-JNP-JP01732J?cmp=18055) Diárias a partir de R$204.19
+   > Desfrute de fantásticas vistas a partir da açoteia ou tire partido das várias comodidades e serviços ao seu dispor, incluindo internet sem fios grátis e serviços de concierge.
+-    [BB Maison du La Metro](https://www.hurb.com/hoteis/naples/bb-maison-du-la-metro-JNP-JP345862?cmp=18055) Diárias a partir de R$234.82
+   > Este hotel despretensioso e exclusivo para adultos, encontra-se em Naples. Localizado mesmo no centro da cidade, o estabelecimento permite-lhe um fácil acesso a tudo o que este destino tem para lhe oferecer. Os viajantes poderão encontrar a curtas distânc
+-    [B&B Alloggio Maria](https://www.hurb.com/hoteis/naples/b-b-alloggio-maria-JNP-JP814026?cmp=18055) Diárias a partir de R$531.69
+   > Property Location With a stay at B&amp;B Alloggio Maria, you&apos;ll be centrally located in Naples, steps from Church Of Girolamini and T293.  This guesthouse is within close proximity of Quadreria dei Girolamini and Complesso Monumentale di San Lorenzo 
+-    [Casa Latina Bed and Breakfast](https://www.hurb.com/hoteis/naples/casa-latina-bed-and-breakfast-JNP-JP117297?cmp=18055) Diárias a partir de R$398.46
+   > Property Location With a stay at Casa Latina B&amp;B in Naples (Historical Center), you&apos;ll be minutes from San Lorenzo Maggiore and Cathedral of Naples.  This guesthouse is within close proximity of Napoli Sotterranea and Church Of Girolamini.Rooms M
+-    [Base Napoli B&B](https://www.hurb.com/hoteis/naples/base-napoli-b-b-JNP-JP069352?cmp=18055) Diárias a partir de R$216.48
+   > Localização do Estabelecimento Reserve a sua estadia no Base Napoli B&amp;B se quiser ficar a uma curtíssima caminhada de dois dos mais importantes ex-líbris de Naples (Chiaia): Túmulo de Virgílio e Porto de Mergellina. Esta moradia encontra-se ainda nas 
+-    [Terrazza Partenopea B&B](https://www.hurb.com/hoteis/naples/terrazza-partenopea-b-b-JNP-JP169393?cmp=18055) Diárias a partir de R$244.89
+   > &lt;p&gt;&lt;b&gt;Localização do Estabelecimento&lt;/b&gt; &lt;br /&gt;Terrazza Partenopea o fica a escassos minutos a pé de dois dos mais afamados lugares de Naples (Centro Histórico), incluindo Stazione d&apos;arte Montecalvario e Castel Nuovo.  Esta re
+-    [Margherita Rooms & Breakfast](https://www.hurb.com/hoteis/naples/margherita-rooms-breakfast-JNP-JP595413?cmp=18055) Diárias a partir de R$290.38
+   > Este despretensioso bed and breakfast fica em Naples. Inserido a 1000 metro(s) do centro da cidade, o alojamento permite-lhe um fácil acesso a tudo o que este destino tem para lhe oferecer. O alojamento está a poucos minutos a pé das principais zonas de e
+-    [B&B Neapolis Bellini](https://www.hurb.com/hoteis/naples/b-b-neapolis-bellini-JNP-JP065287?cmp=18055) Diárias a partir de R$191.42
+   > Property Location With a stay at B&amp;B Neapolis Bellini, you&apos;ll be centrally located in Naples, steps from Museum of Music History and Piazza Bellini.  This bed &amp; breakfast is within close proximity of Port&apos;Alba and Chiesa di San Pietro a 
+-    [Miseria e Nobilta' Bed and Breakfast](https://www.hurb.com/hoteis/naples/miseria-e-nobilta-bed-and-breakfast-JNP-JP133408?cmp=18055) Diárias a partir de R$267.15
+   > Miseria e Nobilta&apos; Bed and Breakfast is perfectly located for both business and leisure guests in Naples. Featuring a complete list of amenities, guests will find their stay at the property a comfortable one. Service-minded staff will welcome and gui
+-    [B&B Napolimilionaria](https://www.hurb.com/hoteis/naples/b-b-napolimilionaria-JNP-JP682330?cmp=18055) Diárias a partir de R$216.48
+   > Property Location With a stay at B&amp;B Napoli Milionaria in Naples (Naples City Centre), you&apos;ll be minutes from Orto Botanico di Napoli and Teatro all&apos;Orto Botanico.  This guesthouse is within close proximity of Chiesa di Sant&apos;Antonio and
+-    [Sanfelice](https://www.hurb.com/hoteis/naples/sanfelice-JNP-JP301873?cmp=18055) Diárias a partir de R$314.44
+   > Property Location With a stay at B&amp;B Sanfelice Centro Storico in Naples (Historical Center), you&apos;ll be minutes from Piazza Matteotti and Santa Chiara.  This bed &amp; breakfast is within close proximity of Santa Maria Incoronata Church and Palazz
+-    [Residenza Flegrea](https://www.hurb.com/hoteis/naples/residenza-flegrea-JNP-JP645391?cmp=18055) Diárias a partir de R$302.90
+   > O registo de entrada começa às 12:00 O horário do registo de saída é 10:00
+-    [Sleep In Napoli](https://www.hurb.com/hoteis/naples/sleep-in-napoli-JNP-JP01601L?cmp=18055) Diárias a partir de R$264.10
+   > O registo de entrada começa às 13:00  O horário do registo de saída é 10:00
+-    [Hostel of the Sun](https://www.hurb.com/hoteis/naples/hostel-of-the-sun-JNP-JP722185?cmp=18055) Diárias a partir de R$77.61
+   > Este confortável hotel fica em Naples. Aqueles que desejam escapar da agitação da rotina diária vão encontrar paz e tranquilidade neste imóvel. Este alojamento não aceita animais de estimação. 
+-    [B&B Nel Cuore di Parthenope](https://www.hurb.com/hoteis/naples/b-b-nel-cuore-di-parthenope-JNP-JP686588?cmp=18055) Diárias a partir de R$164.05
+   > &lt;p&gt;&lt;b&gt;Ubicación del establecimiento&lt;/b&gt; &lt;br /&gt;En Nel Cuore di Parthenope gozarás de una ubicación céntrica en Nápoles, a pocos pasos de Museo Madre y de Piazza Cavour.  Este bed and breakfast se encuentra cerca de Santa Restituta y
+-    [Marina ResArt b&b](https://www.hurb.com/hoteis/naples/marina-resart-b-b-JNP-JP249916?cmp=18055) Diárias a partir de R$318.99
+   > 
+-    [Hotel Europeo](https://www.hurb.com/hoteis/naples/hotel-europeo-JNP-JP039560?cmp=18055) Diárias a partir de R$182.14
+   > Este hotel está situado no terceiro e quarto andar de um prédio datado do séc.XIX, em pleno centro histórico, perto de Piazza Dante e Piazza San Domenico. A sua localização ideal no bairro universitário possibilita-lhe deslocar-se a pé até atracções como 
+-    [B&B Il Ventre di Napoli](https://www.hurb.com/hoteis/naples/b-b-il-ventre-di-napoli-JNP-JP502113?cmp=18055) Diárias a partir de R$243.07
+   > Property Location With a stay at B&amp;B Il Ventre di Napoli, you&apos;ll be centrally located in Naples, steps from National Archaeological Museum and Galleria Principe di Napoli.  This bed &amp; breakfast is within close proximity of Second University o
+-    [Bed and Breakfast Napoli Stazione](https://www.hurb.com/hoteis/naples/bed-and-breakfast-napoli-stazione-JNP-JP249877?cmp=18055) Diárias a partir de R$178.30
+   > Property Location With a stay at B&amp;B Napoli Stazione in Naples (Naples City Centre), you&apos;ll be minutes from Piazza Giuseppe Garibaldi and Mercato di Porta Nolana.  This bed &amp; breakfast is within close proximity of Teatro Bellini and Porta Cap
+-    [Maison Toledo 24](https://www.hurb.com/hoteis/naples/maison-toledo-24-JNP-JP117093?cmp=18055) Diárias a partir de R$292.28
+   > &lt;p&gt;&lt;b&gt;Localização do Estabelecimento&lt;/b&gt; &lt;br /&gt;Reserve este complexo de apartamentos para ficar bem no centro de Naples, e a uma curtíssima caminhada de vários lugares emblemáticos, incluindo Castel Nuovo e Piazza Matteotti.  Este 
+-    [Relais Piazza del Plebiscito](https://www.hurb.com/hoteis/naples/relais-piazza-del-plebiscito-JNP-JP00381J?cmp=18055) Diárias a partir de R$214.81
+   > Aceitam-se animais de estimação    O registo de entrada começa às 12:00  O horário do registo de saída é 11:00
+-    [Domus Gemi](https://www.hurb.com/hoteis/naples/domus-gemi-JNP-JP723654?cmp=18055) Diárias a partir de R$256.35
+   > Domus Gemi O Domus Gemi esta situado no Napoli. O hotel oferece estacionamento exterior. Os hospedes do hotel podem desfrutar de uma refeição no restaurante . Caracteristicas dos quartos Domus Gemi. Secador de cabelo disponivel em todos os quartos. E perm
+-    [skyhouse beverello](https://www.hurb.com/hoteis/naples/skyhouse-beverello-JNP-JP249883?cmp=18055) Diárias a partir de R$284.84
+   > Este bed and breakfast se encuentra cerca de Estatua de Víctor Manuel II y de Centro de congresos Expo.  En Skyhouse Beverello gozarás de una ubicación céntrica en Nápoles, a pocos pasos de Ayuntamiento de Nápoles y Piazza del Municipio.Habitaciones  Te s
+-    [Cerasiello](https://www.hurb.com/hoteis/naples/cerasiello-JNP-JP117311?cmp=18055) Diárias a partir de R$262.06
+   > Property Location Located in Naples (Historical Center), B&amp;B Cerasiello is minutes from Museum Madre and Piazza Cavour.  This bed &amp; breakfast is within close proximity of Palazzo Sanfelice and Santa Restituta.Rooms Make yourself at home in one of 
+-    [B&B Santa Lucia](https://www.hurb.com/hoteis/naples/b-b-santa-lucia-JNP-JP945047?cmp=18055) Diárias a partir de R$341.81
+   > &lt;p&gt;&lt;b&gt;Ubicación del establecimiento&lt;/b&gt; &lt;br /&gt;Si te alojas en B&amp;B Santa Lucia 50, en Nápoles (Centro histórico), estarás a pocos minutos de La Fontana dell&apos;Immacolatella y de Palacio Real.  Esta casa de huéspedes se encuen
+-    [Hotel Ginevra, hotels in Naples Italy](https://www.hurb.com/hoteis/naples/hotel-ginevra-hotels-in-naples-italy-JNP-JP135684?cmp=18055) Diárias a partir de R$125.33
+   >  
+-    [Bed And Breakfast Chiaia 32](https://www.hurb.com/hoteis/naples/bed-and-breakfast-chiaia-32-JNP-JP606448?cmp=18055) Diárias a partir de R$271.03
+   > Property Location With a stay at Bed and Breakfast Chiaia 32 in Naples (Historical Center), you&apos;ll be minutes from Church of San Ferdinando and Royal Palace. This bed &amp; breakfast is within close proximity of San Francesco di Paola and Piazza del 
+-    [Luna Caprese](https://www.hurb.com/hoteis/naples/luna-caprese-JNP-JP783618?cmp=18055) Diárias a partir de R$265.86
+   > Luna Caprese O Luna Caprese esta situado no Napoli.
+-    [Hostel Mancini Naples](https://www.hurb.com/hoteis/naples/hostel-mancini-naples-JNP-JP748780?cmp=18055) Diárias a partir de R$68.36
+   > Este simples hostel está localizado em Naples. Situado a 100 metro(s) do centro da cidade, o alojamento permite-lhe aceder facilmente a pé a variados locais de interesse. Os clientes podem facilmente aceder aos meios de transporte públicos. A praia mais p
+-    [Enjoy Naples](https://www.hurb.com/hoteis/naples/enjoy-naples-JNP-JP552226?cmp=18055) Diárias a partir de R$406.52
+   > Property Location With a stay at Enjoy Naples, you&apos;ll be centrally located in Naples, steps from Galleria Principe di Napoli and National Archaeological Museum. This apartment is within close proximity of Second University of Naples and Piazza Bellin
+-    [NeapolitanTrips](https://www.hurb.com/hoteis/naples/neapolitantrips-JNP-JP169389?cmp=18055) Diárias a partir de R$225.98
+   > Algumas das comodidades e serviços em destaque incluem internet sem fios grátis, uma sala de jogos e um televisor no espaço comum.
+-    [Areamare Bed and Breakfast Napoli](https://www.hurb.com/hoteis/naples/areamare-bed-and-breakfast-napoli-JNP-JP137674?cmp=18055) Diárias a partir de R$360.79
+   > Areamare O Areamare esta situado no Napoli. Refeiçãos disponiveis no hotel , que tem o seu propio restaurante. Caracteristicas dos quartos Areamare. O ferro e a tabua de passar estão disponiveis em todos os quartos. Existem facilidades de acesso a interne
+-    [BB Maison Du La Rua](https://www.hurb.com/hoteis/naples/bb-maison-du-la-rua-JNP-JP936689?cmp=18055) Diárias a partir de R$215.26
+   > Este simples bed and breakfast encontra-se em Naples. Inserido a 50 metro(s) do centro da cidade, o estabelecimento permite-lhe um fácil acesso a tudo o que este destino tem para lhe oferecer. Os hóspedes poderão desfrutar da proximidade do imóvel das pri
+-    [Bed & Breakfast - Orsini46](https://www.hurb.com/hoteis/naples/bed-breakfast-orsini46-JNP-JP945042?cmp=18055) Diárias a partir de R$400.24
+   > Property Location B&amp;B Orsini46 is in the heart of Naples, walking distance from La Fontana dell&apos;Immacolatella and Piazza del Plebiscito. This bed &amp; breakfast is within close proximity of Royal Palace and San Francesco di Paola.Rooms Make your
+-    [BB Palazzo Satriano](https://www.hurb.com/hoteis/naples/bb-palazzo-satriano-JNP-JP501967?cmp=18055) Diárias a partir de R$478.54
+   > Property Location Located in Naples (Historical Center), Bed &amp; Breakfast Palazzo Satriano is minutes from Piazza dei Martiri and Naples Aquarium. This bed &amp; breakfast is within close proximity of Palazzo delle Arti Napoli and Villa Comunale.Rooms 
+-    [Hostel Hotel Bella Capri](https://www.hurb.com/hoteis/naples/hostel-hotel-bella-capri-JNP-JP154683?cmp=18055) Diárias a partir de R$94.95
+   > Este agradável hotel está situado em Naples. Aqueles que desejam escapar da agitação da rotina diária vão encontrar paz e tranquilidade neste alojamento. Este hotel não aceita animais de estimação. 
+-    [Bed and Breakfast I Tetti Napoli](https://www.hurb.com/hoteis/naples/bed-and-breakfast-i-tetti-napoli-JNP-JP249926?cmp=18055) Diárias a partir de R$265.86
+   > Algumas das comodidades e serviços em destaque incluem internet sem fios grátis e um televisor no espaço comum.
+-    [Spaghetti Home](https://www.hurb.com/hoteis/naples/spaghetti-home-JNP-JP600098?cmp=18055) Diárias a partir de R$232.32
+   > 
+-    [Spaccanapoli Comfort Suites](https://www.hurb.com/hoteis/naples/spaccanapoli-comfort-suites-JNP-JP132793?cmp=18055) Diárias a partir de R$325.22
+   > Property Location A stay at SpaccaNapoli Comfort Suites places you in the heart of Naples, walking distance from Fontana di Monteoliveto and Piazza Matteotti. This bed &amp; breakfast is within close proximity of Carthusian Monastery of San Martino and Na
+-    [Caesar B&B Napoli](https://www.hurb.com/hoteis/naples/caesar-b-b-napoli-JNP-JP682397?cmp=18055) Diárias a partir de R$234.26
+   > Property Location With a stay at CAESAR b&amp;b NAPOLI in Naples (Historical Center), you&apos;ll be minutes from Museo Civico Filangeri and Palazzo Marigliano.  This bed &amp; breakfast is within close proximity of University of Naples Federico II and Sa
+-    [B&B Cuore di Napoli](https://www.hurb.com/hoteis/naples/b-b-cuore-di-napoli-JNP-JP592759?cmp=18055) Diárias a partir de R$265.86
+   > En Cuore di Napoli gozarás de una ubicación céntrica en Nápoles, a pocos pasos de Museo Madre y de Piazza Cavour.  Este bed and breakfast se encuentra cerca de Il Duomo y de Santa Restituta.Habitaciones  Te sentirás como en tu propia casa en una de las 4 
+-    [Mercatello Relais B&B](https://www.hurb.com/hoteis/naples/mercatello-relais-b-b-JNP-JP645684?cmp=18055) Diárias a partir de R$263.38
+   > Este bed and breakfast se encuentra cerca de Piazza Bellini y de Segunda Universidad de Nápoles.  En Mercatello Relais Old City gozarás de una ubicación céntrica en Nápoles, a pocos pasos de Piazza Dante y Port&apos;Alba.Habitaciones  Te sentirás como en 
+-    [B&B Dei Decumani](https://www.hurb.com/hoteis/naples/b-b-dei-decumani-JNP-JP848141?cmp=18055) Diárias a partir de R$226.69
+   > A residência situa-se na Via Duomo, o centro da zona histórica da Nea Polis grega. É o local ideal para descobrir os locais de interesse histórico da cidade como a Basílica de San Lorenzo e San Domenico Maggiore, a Capela Sansevero com as esculturas de Sa
+-    [B&b Napoli - Sweet Sleep Napoli](https://www.hurb.com/hoteis/naples/b-b-napoli-sweet-sleep-napoli-JNP-JP059997?cmp=18055) Diárias a partir de R$227.87
+   > Este hotel localiza-se no coração de Nápoles, em frente à Piazza Garibaldi e a apenas 120 m da estação central. O aeroporto de Nápoles-Capodichino situa-se a cerca de 8 km do hotel.
+
+Este hotel urbano ideal para famílias situa-se numa penthouse luxuosa do
+-    [Casa Rubinacci](https://www.hurb.com/hoteis/naples/casa-rubinacci-JNP-JP100937?cmp=18055) Diárias a partir de R$623.20
+   > Property Location With a stay at Casa Rubinacci in Naples (Posillipo), you&apos;ll be convenient to U. S. Consulate and Villa Comunale. This apartment is within close proximity of Virgil&apos;s Tomb and Villa Floridiana.Rooms Make yourself at home in one 
+-    [Sleep & Zupp](https://www.hurb.com/hoteis/naples/sleep-zupp-JNP-JP527165?cmp=18055) Diárias a partir de R$264.84
+   > Localização do Estabelecimento B&amp;B Sleep &amp; Zupp o abre-lhe as portas a uma estadia bem no centro de Naples, ao virar da esquina de alguns dos mais badalados ex-líbris locais, incluindo Palazzo Pignatelli di Monteleone e Fontana di Monteoliveto.  E
+-    [Anna's Family Terrace B&B](https://www.hurb.com/hoteis/naples/anna-s-family-terrace-b-b-JNP-JP933972?cmp=18055) Diárias a partir de R$209.86
+   > Desfrute de fantásticas vistas a partir da açoteia ou tire partido das várias comodidades e serviços ao seu dispor, incluindo internet sem fios grátis e um televisor no espaço comum.
+-    [bed and breakfast cupole e campanili](https://www.hurb.com/hoteis/naples/bed-and-breakfast-cupole-e-campanili-JNP-JP441968?cmp=18055) Diárias a partir de R$227.87
+   > Localização do Estabelecimento O B&amp;B Cupole e Campanili fica a escassos minutos a pé de dois dos mais afamados lugares de Naples (Centro Histórico), incluindo Galleria Principe di Napoli e Museo Archeologico Nazionale. Este bed &amp; breakfast encontr
+-    [Belledonne Suite & Gallery](https://www.hurb.com/hoteis/naples/belledonne-suite-gallery-JNP-JP508541?cmp=18055) Diárias a partir de R$273.44
+   > Algumas das comodidades e serviços em destaque incluem internet sem fios grátis e apoio para excursões/compra de bilhetes.
+-    [Pensione Enea](https://www.hurb.com/hoteis/naples/pensione-enea-JNP-JP141935?cmp=18055) Diárias a partir de R$170.90
+   > Property Location A stay at Pensione Enea places you in the heart of Naples, walking distance from Piazza Giuseppe Garibaldi and Porta Capuana. This guesthouse is within close proximity of Castel Capuano and Santa Maria del Carmine.Rooms Make yourself at 
+-    [B&B Napoli Sea](https://www.hurb.com/hoteis/naples/b-b-napoli-sea-JNP-JP322960?cmp=18055) Diárias a partir de R$455.74
+   > Property Location With a stay at B&amp;B Napoli Sea in Naples (Historical Center), you&apos;ll be minutes from Piazza dei Martiri and Castel dell&apos;Ovo. This bed &amp; breakfast is within close proximity of La Fontana dell&apos;Immacolatella and Borgo 
+-    [Le Mummarelle b&b](https://www.hurb.com/hoteis/naples/le-mummarelle-b-b-JNP-JP455028?cmp=18055) Diárias a partir de R$406.52
+   > Localização do Estabelecimento Le Mummarelle B&amp;B o fica a escassos minutos a pé de dois dos mais afamados lugares de Naples (Centro Histórico), incluindo Piazza del Plebiscito e Palazzo Reale di Napoli.  Este bed &amp; breakfast encontra-se ainda nas 
+-    [Napul'Art](https://www.hurb.com/hoteis/naples/napul-art-JNP-JP383400?cmp=18055) Diárias a partir de R$154.26
+   > Algumas das comodidades e serviços em destaque incluem internet sem fios grátis e apoio para excursões/compra de bilhetes. Algumas das principais atrações locais ficam a uma curta viagem de autocarro, disponibilizado pelo hotel.
+-    [Come d'Incanto a Napoli](https://www.hurb.com/hoteis/naples/come-d-incanto-a-napoli-JNP-JP569508?cmp=18055) Diárias a partir de R$309.74
+   > 
+-    [Anna's Family B&B](https://www.hurb.com/hoteis/naples/anna-s-family-b-b-JNP-JP185364?cmp=18055) Diárias a partir de R$262.06
+   > Property Location With a stay at Anna&apos;s Family, you&apos;ll be centrally located in Naples, steps from Mercato di Porta Nolana and Piazza Giuseppe Garibaldi.  This bed &amp; breakfast is within close proximity of Santissima Annunziata and Chiesa di S
+-    [B&B Napolì](https://www.hurb.com/hoteis/naples/b-b-napoli-JNP-JP499624?cmp=18055) Diárias a partir de R$212.94
+   > Property Location With a stay at B&amp;B Napolì in Naples (Historical Center), you&apos;ll be minutes from Royal Palace and San Francesco di Paola. This guesthouse is within close proximity of Church of San Ferdinando and Piazza del Plebiscito.Rooms Stay 
+-    [Bed & Breakfast Museum](https://www.hurb.com/hoteis/naples/bed-breakfast-museum-JNP-JP943389?cmp=18055) Diárias a partir de R$483.97
+   > Property Location With a stay at B&amp;B Museum, you&apos;ll be centrally located in Naples, steps from National Archaeological Museum and Galleria Principe di Napoli. This bed &amp; breakfast is within close proximity of Second University of Naples and P
+-    [Dimora delle Arti - Camere e Suites](https://www.hurb.com/hoteis/naples/dimora-delle-arti-camere-e-suites-JNP-JP01228R?cmp=18055) Diárias a partir de R$355.52
+   > Algumas das comodidades e serviços em destaque incluem internet sem fios grátis e apoio para excursões/compra de bilhetes.
+-    [Residence Confalone](https://www.hurb.com/hoteis/naples/residence-confalone-JNP-JP524213?cmp=18055) Diárias a partir de R$214.34
+   > Localização do Estabelecimento O Residence Confalone situa-se a cerca de 3 km de alguns dos principais marcos de Naples, incluindo Ospedale Santobono e Castel Sant&apos;Elmo. Esta residencial encontra-se ainda nas imediações de outros pontos de interesse,
+-    [Residenza Pizzofalcone](https://www.hurb.com/hoteis/naples/residenza-pizzofalcone-JNP-JP538050?cmp=18055) Diárias a partir de R$303.00
+   > Property Location With a stay at Residenza Pizzofalcone in Naples (Chiaia), you&apos;ll be minutes from Royal Palace and San Francesco di Paola. This apartment is within close proximity of Piazza del Plebiscito and Church of San Ferdinando. Rooms Make you
+-    [A Casa di Mamma B&B](https://www.hurb.com/hoteis/naples/a-casa-di-mamma-b-b-JNP-JP249911?cmp=18055) Diárias a partir de R$683.62
+   > Si te alojas en A Casa di Mamma B&amp;B, en Nápoles (Centro histórico), estarás a pocos minutos de Galleria Principe di Napoli y Museo Nacional de Arqueología.  Este bed and breakfast se encuentra muy cerca de Piazza Dante.
+
+ Te sentirás como en tu propia
+-    [Monteoliveto Bed & Breakfast](https://www.hurb.com/hoteis/naples/monteoliveto-bed-breakfast-JNP-JP708681?cmp=18055) Diárias a partir de R$297.92
+   > Property Location With a stay at Monteoliveto Bed and Breakfast in Naples (Historical Center), you&apos;ll be minutes from Piazza Matteotti and Santa Chiara. This guesthouse is within close proximity of Fontana di Monteoliveto and Monastery of St. Clare.R
+-    [B&B Art Suite Santa Brigida](https://www.hurb.com/hoteis/naples/b-b-art-suite-santa-brigida-JNP-JP945048?cmp=18055) Diárias a partir de R$381.81
+   > Este despretensioso bed and breakfast fica em Naples. Este acolhedor imóvel garante uma estadia tranquila uma vez que conta com apenas 5 unidades. As áreas comuns do estabelecimento incluem ligação Wi-Fi à internet. O B&amp;B Art Suite Santa Brigida não t
+-    [Alloggio di Luna](https://www.hurb.com/hoteis/naples/alloggio-di-luna-JNP-JP02251N?cmp=18055) Diárias a partir de R$256.35
+   > Property Location With a stay at Alloggio di Luna B&amp;B in Naples (Naples City Centre), you&apos;ll be minutes from Piazza Giuseppe Garibaldi and Porta Capuana.  This bed &amp; breakfast is within close proximity of Castel Capuano and Pio Monte della Mi
+-    [Viola](https://www.hurb.com/hoteis/naples/viola-JNP-JP723536?cmp=18055) Diárias a partir de R$153.81
+   > Este confortável hotel está situado em Naples. Estão disponíveis 21 quartosde hóspedes para conveniência dos hóspedes. Este hotel não aceita animais de estimação. 
+-    [Hotel Poker](https://www.hurb.com/hoteis/naples/hotel-poker-JNP-JP787228?cmp=18055) Diárias a partir de R$132.92
+   > Este despretensioso hotel fica em Naples. Com um total de 14 unidades, é um local agradável para se ficar. Além dos serviços e comodidades oferecidos, os hóspedes podem aproveitar a ligação à internet por fio ou sem fios disponível nas instalações. Os vis
+
+## Hotéis 2 estrelas - ⭐️⭐️
+
+-    [Hotel Fiorentina](https://www.hurb.com/hoteis/naples/hotel-fiorentina-JNP-JP117227?cmp=18055) Diárias a partir de R$192.80
+   > Não perca as várias atividades recreativas e de entretimento ao seu dispor, incluindo aluguer de bicicletas. O espaço oferece ainda internet sem fios grátis e apoio para excursões/compra de bilhetes.
+-    [Bed And Breakfast Astra](https://www.hurb.com/hoteis/naples/bed-and-breakfast-astra-JNP-JP108025?cmp=18055) Diárias a partir de R$132.92
+   > The B &amp; B features a relaxation room and a kitchen where you can enjoy your breakfast.
+-    [Hotel Casanova](https://www.hurb.com/hoteis/naples/hotel-casanova-JNP-JP254127?cmp=18055) Diárias a partir de R$170.37
+   > Hotel Casanova Os hospedes fazem o check in no 2 estrelas Hotel Casanova em Napoli tem garantida uma calorosa recepção. Estacionamento exterior disponivel. Os hospedes do hotel podem jantar no restaurante. Comodidades dos quartos Hotel Casanova. E permiti
+-    [MediNaples](https://www.hurb.com/hoteis/naples/medinaples-JNP-JP121483?cmp=18055) Diárias a partir de R$300.02
+   > Si te alojas en MediNaples, en Nápoles (Centro histórico), estarás a pocos minutos de Santa Maria Incoronata Church y de Castel Nuovo.  Este bed and breakfast se encuentra cerca de Teatro Stabile Napoli y de Scavi of Plantis.Habitaciones  Te sentirás como
+-    [Hotel Alloggio del Conte](https://www.hurb.com/hoteis/naples/hotel-alloggio-del-conte-JNP-JP153716?cmp=18055) Diárias a partir de R$189.88
+   > O aparthotel situa-se no centro da zona histórica de Nápoles, a apenas alguns passos da Corso Umberto I, uma artéria muito importante, bem como a 100 m dos I Decumani, da catedral, da histórica Universidade Federico II e do Castelo Maschio Angioino. Os hó
+-    [Hotel Zara](https://www.hurb.com/hoteis/naples/hotel-zara-JNP-JP039510?cmp=18055) Diárias a partir de R$300.29
+   > O hotel situa-se apenas a 200 m das lojas do Corso Umberto e muito próximo da estação de comboios. Os hóspedes encontrarão também inúmeros restaurantes, lojas, ligações de transportes públicos e estações de metro e autocarros a 100 m do hotel urbano. O Mu
+-    [Hotel le Orchidee](https://www.hurb.com/hoteis/naples/hotel-le-orchidee-JNP-JP971101?cmp=18055) Diárias a partir de R$232.51
+   > Este aconchegante hotel está situado no centro de Nápoles, a apenas 5 minutos a pé da Igreja de Santa Chiara, e a 500 m do porto, com os seus ferries para Sicília, Capri e Ischia. A estação ferroviária central fica a 20 minutos a pé e o aeroporto de Nápol
+
+## Hotéis 3 estrelas - ⭐️⭐️⭐️
+
+-    [Hotel Mergellina](https://www.hurb.com/hoteis/naples/hotel-mergellina-JNP-JP671040?cmp=18055) Diárias a partir de R$267.15
+   > Property Location B&amp;B Mergellina is in the heart of Naples, walking distance from Villa Pignatelli and Villa Comunale. This apartment is within close proximity of U. S. Consulate and Palazzo delle Arti Napoli.Rooms Make yourself at home in one of the 
+-    [Hotel Cristina Napoli](https://www.hurb.com/hoteis/naples/hotel-cristina-napoli-JNP-JP227220?cmp=18055) Diárias a partir de R$365.75
+   > Este moderno hotel situa-se junto à estação de trem de Nápoles Cavalleggeri d&apos;Aosta e do outro lado da rua do Jardim Zoológico de Nápoles. O centro da cidade e o porto ficam a 8 km do hotel. A cidade oferece uma rica herança cultural para descobrir, 
+-    [Hotel Cesare Augusto](https://www.hurb.com/hoteis/naples/hotel-cesare-augusto-JNP-JP138379?cmp=18055) Diárias a partir de R$322.81
+   > Este confortável hotel fica em Fuorigrotta. O alojamento dispõe de um total de 26 quartos. O Cesare Augusto não é um estabelecimento que aceite animais. 
+-    [Hotel La Pace Napoli](https://www.hurb.com/hoteis/naples/hotel-la-pace-napoli-JNP-JP152912?cmp=18055) Diárias a partir de R$123.06
+   > Este hotel urbano goza de uma magnífica localização central, no centro da bonita cidade partenopeia de Nápoles. Fica próximo da estação central de comboios da Piazza Garibaldi, bem como do porto e da praça central de Nápoles, da Piazza del Plebiscito, ape
+-    [Casa 12](https://www.hurb.com/hoteis/naples/casa-12-JNP-JP01192Q?cmp=18055) Diárias a partir de R$322.81
+   > Algumas das comodidades e serviços em destaque incluem internet sem fios grátis e um salão de banquetes.
+-    [Apart Hotel Plebiscito](https://www.hurb.com/hoteis/naples/apart-hotel-plebiscito-JNP-JP317289?cmp=18055) Diárias a partir de R$227.87
+   > The hotel is located in an exclusive shopping district in the centre of Naples, just a 5-min walk from the Royal Palace and Piazza del Plebiscito. And at a 15-min walk from the seafront, where guests will find views over the Bay of Naples and boat trips t
+-    [Villa Maria](https://www.hurb.com/hoteis/naples/villa-maria-JNP-JP595422?cmp=18055) Diárias a partir de R$189.88
+   > Property Location Located in Naples (Fuorigrotta), Hotel Villa Maria is minutes from Teatro Palapartenope and PalaBarbuto. This hotel is within close proximity of Piscina Scandone and Mostra d&apos;Oltremare.Rooms Stay in one of 29 guestrooms featuring fl
+-    [Hotel San Giorgio](https://www.hurb.com/hoteis/naples/hotel-san-giorgio-JNP-JP039600?cmp=18055) Diárias a partir de R$228.63
+   > O hotel situa-se nas imediações da Piazza Garibaldi, a poucos metros da estação central de comboios. Daqui alcançará confortavelmente inúmeras atracções turísticas. A costa de Sorrento com porto e o aeroporto Capodichino localizam-se a poucos minutos de v
+-    [Hotel Guiren](https://www.hurb.com/hoteis/naples/hotel-guiren-JNP-JP150719?cmp=18055) Diárias a partir de R$149.15
+   > Hotel located in central position, but easily accessible (the central railway station is 2 min walk, the airport is 2 km, the highway exit at 800 m). It is a few steps from Decumano Maggiore, the National Museum, Capodimonte Museum and the Museum of Moder
+-    [Bovio Suite Hotel](https://www.hurb.com/hoteis/naples/bovio-suite-hotel-JNP-JP165337?cmp=18055) Diárias a partir de R$290.06
+   > Este simples hotel está localizado em Naples. Situado no centro da cidade, o estabelecimento permite-lhe aceder facilmente a pé a variados locais de interesse. As ligações de transporte público mais próximas encontram-se a poucos minutos a pé do hotel. A 
+-    [H Rooms Boutique Hotel Napoli](https://www.hurb.com/hoteis/naples/h-rooms-boutique-hotel-napoli-JNP-JP067584?cmp=18055) Diárias a partir de R$271.03
+   > This hotel was built in 1800. The establishment offers travellers a total of 9 rooms. A lobby and a reception are available to guests. Most storeys can be reached by lift. Services and facilities at the hotel include a safe, a restaurant, a bar, room serv
+-    [Week end a Napoli](https://www.hurb.com/hoteis/naples/week-end-a-napoli-JNP-JP773325?cmp=18055) Diárias a partir de R$493.72
+   > Este confortável hotel está localizado em Naples. Aqueles que ficam neste estabelecimento irão disfrutar de uma estadia calma e tranquila no Week-end a Napoli, uma vez que este conta com 8 unidades de alojamento. Não são permitidos animais de estimação no
+-    [B&B Hotel Napoli](https://www.hurb.com/hoteis/naples/b-b-hotel-napoli-JNP-JP152849?cmp=18055) Diárias a partir de R$293.90
+   > Este encantador hotel fica em Naples. Localizado mesmo no centro da cidade, o alojamento permite-lhe um fácil acesso a tudo o que este destino tem para lhe oferecer. Existem um total de 92 unidades no B&amp;B Hotel Napoli. As instalações encontram-se num 
+-    [Potenza](https://www.hurb.com/hoteis/naples/potenza-JNP-JP122812?cmp=18055) Diárias a partir de R$208.89
+   > Property Location With a stay at Hotel Potenza in Naples (Naples City Centre), you&apos;ll be minutes from Piazza Giuseppe Garibaldi and Porta Capuana. This hotel is within close proximity of Castel Capuano and Santa Maria del Carmine.Rooms Make yourself 
+-    [Platamon b&b](https://www.hurb.com/hoteis/naples/platamon-b-b-JNP-JP799920?cmp=18055) Diárias a partir de R$222.18
+   > Este confortável hotel está localizado em Naples. Este acolhedor imóvel garante uma estadia tranquila uma vez que conta com apenas 3 unidades. O Platamon não é um estabelecimento que aceite animais. 
+-    [Correra 241 Lifestyle Hotel in Napoli](https://www.hurb.com/hoteis/naples/correra-241-lifestyle-hotel-in-napoli-JNP-JP144136?cmp=18055) Diárias a partir de R$455.74
+   > O hotel urbano situa-se no centro turístico de Nápoles, a poucos minutos a pé da Piazza Dante e das famosas Decumani. Nas imediações do hotel existem inúmeros estabelecimentos comerciais, restaurantes e bares. É igualmente o ponto de partida ideal para de
+-    [Hotel Ideal](https://www.hurb.com/hoteis/naples/hotel-ideal-JNP-JP039544?cmp=18055) Diárias a partir de R$216.06
+   > O hotel situa-se centralmente a poucos metros de inúmeros estabelecimentos comerciais e locais de entretenimento (20 m). São cerca de 3 minutos de viagem até ao porto, 5 até ao aeroporto Capodichino e cerca de 15 até ao aeroporto de Nápoles (5 km). A pouc
+-    [Hotel Meublè Santa Chiara Suite](https://www.hurb.com/hoteis/naples/hotel-meuble-santa-chiara-suite-JNP-JP151109?cmp=18055) Diárias a partir de R$265.86
+   > This apartment hotel was built in 1700. Travellers are welcomed at the hotel, which has a total of 10 rooms. The accommodation features a safe, a restaurant, a breakfast room, a bar and room service. Guests arriving by car can leave their vehicles in the 
+-    [Hotel Maison Degas](https://www.hurb.com/hoteis/naples/hotel-maison-degas-JNP-JP977131?cmp=18055) Diárias a partir de R$304.21
+   > Hotel Maison Degas Situado em Napoli, o Hotel Maison Degas oferece estadia de 3 estrelas. Estacionamento exterior disponivel. Refei&apos;s disponiveis no hotel , que tem o seu propio restaurante. Comodidades dos quartos Hotel Maison Degas. E permitido fum
+-    [Hotel Cineholiday](https://www.hurb.com/hoteis/naples/hotel-cineholiday-JNP-JP998545?cmp=18055) Diárias a partir de R$171.21
+   > Este encantador hotel fica em Naples. O Cine Holiday garante uma estadia tranquila uma vez que conta com apenas 14 quartos. Os visitantes não serão incomodados durante a sua estadia, uma vez que não são permitidos animais de estimação neste imóvel. 
+-    [B&B Bonapace Porta Nolana](https://www.hurb.com/hoteis/naples/b-b-bonapace-porta-nolana-JNP-JP680616?cmp=18055) Diárias a partir de R$170.90
+   >  
+-    [Schilizzi Hotel](https://www.hurb.com/hoteis/naples/schilizzi-hotel-JNP-JP039522?cmp=18055) Diárias a partir de R$905.79
+   > A localização do hotel, junto ao porto, é ideal para os hóspedes que desejam visitar as belas ilhas vizinhas de Capri e Ischia. A popular Piazza Plebiscito, onde se realizam frequentemente concertos e espetáculos, fica a apenas 2 minutos a pé. A bela cate
+-    [Hotel Garibaldi - Naples](https://www.hurb.com/hoteis/naples/hotel-garibaldi-naples-JNP-JP039562?cmp=18055) Diárias a partir de R$288.56
+   > Este moderno hotel situa-se no coração de Nápoles e é o ponto de partida ideal para descobrir várias atracções turísticas. Encontrará facilmente o Herculano, Pompeia, Vesúvio ou a costa amalfitana nas imediações do hotel. Alcançará confortavelmente o cent
+-    [Garden Napoli](https://www.hurb.com/hoteis/naples/garden-napoli-JNP-JP324626?cmp=18055) Diárias a partir de R$794.92
+   > Very nice hotel with a perfect location for business travelers as near to railways station and with easy access to airport Capodichino (only 2km) and for leisure travelers as located only few minutes by walking from the historical city center of Naples.. 
+-    [Stelle Hotel The Businest](https://www.hurb.com/hoteis/naples/stelle-hotel-the-businest-JNP-JP125942?cmp=18055) Diárias a partir de R$284.05
+   > Este hotel é a base perfeita para explorar a área. Situado no centro da cidade, o Hotel oferece fácil acesso à cidade e a tudo o que tem para oferecer. O Hotel está localizado a poucos minutos de distância do aeroporto. O Hotel fica muito próximo da praia
+-    [Buono Hotel](https://www.hurb.com/hoteis/naples/buono-hotel-JNP-JP152979?cmp=18055) Diárias a partir de R$291.82
+   > O hotel situa-se no centro desta belíssima cidade partenopéia, próximo do terminal de autocarros e da estação de comboios, do porto e da estação de metro Napoli Piazza. O aeroporto Capodichino de Nápoles fica apenas a 2 km de distância.
+
+O hotel, construí
+-    [b&b - Residenza Napoli - Fiorentini Residence -](https://www.hurb.com/hoteis/naples/b-b-residenza-napoli-fiorentini-residence-JNP-JP468278?cmp=18055) Diárias a partir de R$319.02
+   > Property Location With a stay at Fiorentini Residence, you&apos;ll be centrally located in Naples, steps from Piazza Matteotti and minutes from Fontana di Monteoliveto. This townhouse accommodation is within close proximity of Castel Nuovo and Naples Town
+-    [Hotel San Marco](https://www.hurb.com/hoteis/naples/hotel-san-marco-JNP-JP791571?cmp=18055) Diárias a partir de R$298.58
+   > The hotel comprises a total of 133 rooms. A bar and room service are available to guests of the accommodation. Wireless internet access in public areas allows guests to stay connected. Those arriving in their own vehicles can leave them in the car park of
+-    [Soggiorno Paradiso](https://www.hurb.com/hoteis/naples/soggiorno-paradiso-JNP-JP360872?cmp=18055) Diárias a partir de R$254.45
+   > Property Location With a stay at Soggiorno Paradiso, you&apos;ll be centrally located in Naples, steps from Santa Maria di Regina Coeli and Museo Anatomico di Napoli.  This bed &amp; breakfast is within close proximity of Basilica di San Paolo Maggiore an
+-    [Hotel Diamond Napoli](https://www.hurb.com/hoteis/naples/hotel-diamond-napoli-JNP-JP153729?cmp=18055) Diárias a partir de R$146.10
+   > Hotel Diamond O Hotel Diamond (3 classificação das estrelas) tem tamanho medio em Napoli. O hotel dispõe  de estacionamento exterior e interior. O hotel oferece instalações com restaurante. Comodidades dos quartos Hotel Diamond. E permitido fumar nos quar
+-    [B&B Firenze 32](https://www.hurb.com/hoteis/naples/b-b-firenze-32-JNP-JP125985?cmp=18055) Diárias a partir de R$147.14
+   > Property Location Located in Naples (Naples City Centre), Firenze 32 is minutes from Piazza Giuseppe Garibaldi and Porta Capuana. This bed &amp; breakfast is within close proximity of Castel Capuano and Santa Maria del Carmine.Rooms Make yourself at home 
+-    [Hotel Tiempo](https://www.hurb.com/hoteis/naples/hotel-tiempo-JNP-JP151100?cmp=18055) Diárias a partir de R$285.76
+   > Este elegante hotel urbano proporciona o acesso a um jardim privado e tem um terraço tranquilo com vista para a cidade, onde os hóspedes podem desfrutar de uma bebida relaxante ou de um café forte. A apenas 600 metros da estação de metro Gianturco e a 5 m
+-    [Residenza Nicola Amore](https://www.hurb.com/hoteis/naples/residenza-nicola-amore-JNP-JP351847?cmp=18055) Diárias a partir de R$366.25
+   > Residenza Nicola Amore O Residenza Nicola Amore esta situado no Napoli. O Hotel não dispõe  de estacionamento interior , no entanto tem estacionamento exterior disponivel. O hotel oferece instalações com restaurante. Caracteristicas dos quartos Residenza 
+-    [Hotel La Corte Napoli](https://www.hurb.com/hoteis/naples/hotel-la-corte-napoli-JNP-JP943627?cmp=18055) Diárias a partir de R$227.87
+   > Property Location With a stay at Hotel La Corte in Naples, you&apos;ll be near the airport and convenient to Monaldi Hospital and Catacombe di San Gennaro.  This hotel is within close proximity of Frederico II University Hospital and Antonio Cardarelli Ho
+-    [B&B Civico 16](https://www.hurb.com/hoteis/naples/b-b-civico-16-JNP-JP057779?cmp=18055) Diárias a partir de R$700.50
+   > O Hotel foi remodelado em 2010. A propriedade tem um piso principal. Há um total de 4 quartos no local. A propriedade consiste em 3 quartos duplos  e 1 suíte. Este popular hotel oferece a base ideal para explorar a cidade. Não há ar-condicionado nas áreas
+-    [Hotel Angioino](https://www.hurb.com/hoteis/naples/hotel-angioino-JNP-JP366647?cmp=18055) Diárias a partir de R$385.31
+   > Este agradável hotel encontra-se em Naples. Inserido a poucos minutos a pé do centro da cidade, o imóvel permite-lhe um fácil acesso a tudo o que este destino tem para lhe oferecer. O estabelecimento encontra-se próximo das ligações de transporte público 
+-    [Hotel Napolit'Amo](https://www.hurb.com/hoteis/naples/hotel-napolit-amo-JNP-JP157729?cmp=18055) Diárias a partir de R$468.48
+   > O hotel situa-se na Via San Tommaso d&apos;Aquino, no centro de Nápoles, apenas a 100 m das ligações mais próximas à rede de transportes públicos (autocarro). Fica a poucos passos da Piazza Municipio e das principais atracções turísticas e de locais de in
+-    [Hotel Vergilius Billia](https://www.hurb.com/hoteis/naples/hotel-vergilius-billia-JNP-JP039523?cmp=18055) Diárias a partir de R$373.25
+   > Este encantador estabelecimento tem uma localização privilegiada no coração da bela Nápoles, perto da estação ferroviária principal, e à distância de uma curta viagem de carro do aeroporto de Nápoles Capodichino. Ideal tanto para viajantes em negócios com
+-    [Hotel Leopardi](https://www.hurb.com/hoteis/naples/hotel-leopardi-JNP-JP113154?cmp=18055) Diárias a partir de R$262.06
+   > general: An elegant atmosphere and vast panorama that embrace Posillipo Hill are just some of the unusual features of Hotel Leopardi in Naples, the same features that inspired the great poet Giacomo in his most famous compositions which came to being duri
+-    [Hotel Piazza Bellini](https://www.hurb.com/hoteis/naples/hotel-piazza-bellini-JNP-JP144233?cmp=18055) Diárias a partir de R$430.98
+   > O hotel urbano situa-se na zona histórica de Nápoles, entre a Piazza Bellini e a Via Constantinopoli. Nas imediações encontram-se o Conservatório de Música San Pietro a Majella, a Igreja de Santa Chiara e o Museu Nacional de Arqueologia. Perto do hotel ex
+-    [The Fresh Hotel](https://www.hurb.com/hoteis/naples/the-fresh-hotel-JNP-JP554452?cmp=18055) Diárias a partir de R$221.97
+   > A baggage storage service and room service are available to guests of the hotel. Wireless internet access is available to travellers in the public areas.
+. (* Sorry, this information is not available in the selected language and is shown in EN) 
+-    [Residenza le Rose Villa d'Arte](https://www.hurb.com/hoteis/naples/residenza-le-rose-villa-d-arte-JNP-JP405376?cmp=18055) Diárias a partir de R$266.07
+   > Residenza Le Rose The Residenza Le Rose is situated in Napoli. No on site car parking is available at the hotel, however off site car parking is available. Guests can dine at the hotel restaurant. Room Features Residenza Le Rose. All rooms have a hairdrye
+-    [Chiaja Hotel de Charme](https://www.hurb.com/hoteis/naples/chiaja-hotel-de-charme-JNP-JP684523?cmp=18055) Diárias a partir de R$445.37
+   > O hotel encontra-se no centro da cidade, a apenas 20 m da Piazza del Plebiscito, o coração da cultura napolitana. O nome do estabelecimento advém da rua que liga a área comercial da Via Toledo com a vistosa Via dei Mille e a elegante Piazza dei Martiri. E
+-    [Residence Echia](https://www.hurb.com/hoteis/naples/residence-echia-JNP-JP039511?cmp=18055) Diárias a partir de R$389.65
+   > This apartment hotel was built in 1970. Travellers can relax in one of the 9 apartments. The upper floors of the hotel can be accessed by lift. Services and facilities at the hotel include a safe, a transfer service, room service and a laundry service. Wi
+-    [Villa Margherita](https://www.hurb.com/hoteis/naples/villa-margherita-JNP-JP152741?cmp=18055) Diárias a partir de R$322.41
+   > Este confortável hotel está situado em Naples. Inserido a 100 metro(s) do centro da cidade, o imóvel permite-lhe um fácil acesso a tudo o que este destino tem para lhe oferecer. Os clientes podem facilmente aceder aos meios de transporte públicos. O Villa
+-    [B&B Quattro Palazzi Napoli](https://www.hurb.com/hoteis/naples/b-b-quattro-palazzi-napoli-JNP-JP710675?cmp=18055) Diárias a partir de R$189.89
+   >  
+-    [Hotel Tourist](https://www.hurb.com/hoteis/naples/hotel-tourist-JNP-JP359775?cmp=18055) Diárias a partir de R$170.90
+   > Este encantador hotel está situado em Naples. Os 216 acolhedores quartos de hóspedes tornam-se um local perfeito para relaxar no final do dia. Não são permitidos animais de estimação neste estabelecimento. 
+-    [Hotel Orsa Maggiore](https://www.hurb.com/hoteis/naples/hotel-orsa-maggiore-JNP-JP202949?cmp=18055) Diárias a partir de R$246.69
+   > Este agradável hotel está localizado em Naples. Situado no centro da cidade, o alojamento permite-lhe aceder facilmente a pé a variados locais de interesse. A 300 metro(s), os visitantes irão encontrar ligações de transporte que vão permitir que explorem 
+-    [Hotel Prati](https://www.hurb.com/hoteis/naples/hotel-prati-JNP-JP982736?cmp=18055) Diárias a partir de R$283.14
+   > O hotel situa-se a poucos minutos a pé do centro histórico em pleno centro empresarial e comercial de Nápoles. É um local ideal para passar as suas férias ou para uma confortável viagem de negócios.
+
+O hotel, construído em 1900 e renovado em 2008, dispõe 
+-    [MH design hotel](https://www.hurb.com/hoteis/naples/mh-design-hotel-JNP-JP914250?cmp=18055) Diárias a partir de R$522.81
+   > A fantástica localização do hotel no centro da cidade de Nápoles permite aos hóspedes desfrutar de uma vasta selecção de serviços úteis. Fica a poucos minutos a pé das principais atracções históricas e arquitectónicas, incluindo o Palácio Real, com a sua 
+-    [Portalba Relais](https://www.hurb.com/hoteis/naples/portalba-relais-JNP-JP153682?cmp=18055) Diárias a partir de R$340.35
+   > O hotel em regime de bed and breakfast goza de uma localização ideal no centro da cidade de Nápoles, com vista para a Piazza Dante no histórico Convitto Nazionale Vittorio Emanuele II. A Via Toledo, elegante rua de lojas e moda, está ao virar da esquina e
+-    [Art Suite Principe Umberto](https://www.hurb.com/hoteis/naples/art-suite-principe-umberto-JNP-JP943359?cmp=18055) Diárias a partir de R$153.81
+   > Este acolhedor bed and breakfast está situado em Naples. Com um total de 9 quartos, é um local agradável para se ficar. O Art Suite Principe Umberto foi completamente renovado em 2012. Estão disponíveis ligações à internet por cabo e sem fios. A receção n
+-    [Hotel Bella Napoli](https://www.hurb.com/hoteis/naples/hotel-bella-napoli-JNP-JP849456?cmp=18055) Diárias a partir de R$224.08
+   > null
+-    [Hôtel Napoli's Gold](https://www.hurb.com/hoteis/naples/hotel-napoli-s-gold-JNP-JP202668?cmp=18055) Diárias a partir de R$271.79
+   > Localizado em Naples, este encantador hotel é ideal para a comunidade LBGT. Situado a 100 metro(s) do centro da cidade, o alojamento permite-lhe aceder facilmente a pé a variados locais de interesse. O hotel encontra-se próximo das principais zonas de ent
+-    [Welcome](https://www.hurb.com/hoteis/naples/welcome-JNP-JP722902?cmp=18055) Diárias a partir de R$182.30
+   > Este confortável hotel fica em Naples. Este acolhedor estabelecimento garante uma estadia tranquila uma vez que conta com apenas 2 unidades de alojamento. O Welcome não é um estabelecimento que aceite animais. 
+-    [Casa Tonia](https://www.hurb.com/hoteis/naples/casa-tonia-JNP-JP721767?cmp=18055) Diárias a partir de R$228.43
+   > Este encantador hotel encontra-se em Naples. Este acolhedor hotel garante uma estadia tranquila uma vez que conta com apenas 4 unidades. Este hotel não é amigo dos animais. 
+-    [Napoli Centrale Hotel](https://www.hurb.com/hoteis/naples/napoli-centrale-hotel-JNP-JP771709?cmp=18055) Diárias a partir de R$144.33
+   > Property Location With a stay at Napoli Centrale in Naples (Naples City Centre), you&apos;ll be minutes from Piazza Giuseppe Garibaldi and Porta Capuana. This bed &amp; breakfast is within close proximity of Castel Capuano and Pio Monte della Misericordia
+-    [Best Western JFK Hotel](https://www.hurb.com/hoteis/naples/best-western-jfk-hotel-JNP-JP744069?cmp=18055) Diárias a partir de R$536.26
+   > O hotel situa-se no centro de &quot;&quot;Campi Flegrei&quot;&quot;, a cerca de 20 m do Parque de diversões &quot;&quot;Edenlandia&quot;&quot; e do Jardim Zoológico. Em frente ao hotel encontra-se o Centro de Feiras e Exposições de Nápoles e a poucos pass
+-    [Miravalle](https://www.hurb.com/hoteis/naples/miravalle-JNP-JP396505?cmp=18055) Diárias a partir de R$151.90
+   > Property Location With a stay at Hotel Miravalle in Naples, you&apos;ll be close to Astroni Crater Nature Reserve and Stadio San Paolo. This hotel is within close proximity of Terme di Agnano Napoli and Allied Joint Force Command Naples.Rooms Stay in one 
+-    [Grand Hotel Europa](https://www.hurb.com/hoteis/naples/grand-hotel-europa-JNP-JP098540?cmp=18055) Diárias a partir de R$205.26
+   > Este encantador hotel situa-se no centro de Nápoles. Nas proximidades, poderá encontrar uma grande variedade de lojas, bares e restaurantes e uma animada vida nocturna. Você pode andar tanto para a estação mais próxima, e uma paragem de transportes públic
+-    [Best Western Hotel Plaza](https://www.hurb.com/hoteis/naples/best-western-hotel-plaza-JNP-JP151964?cmp=18055) Diárias a partir de R$218.31
+   > O hotel de estilo futurista situa-se no centro da cidade, a apenas 50 m da Corso Garibaldi. Alcançará facilmente a pé diversos estabelecimentos comerciais (10 m), assim como bares (20 m) e transportes públicos (300 m), bem como discotecas e clubes a cerca
+-    [Clarean Hotel Naples](https://www.hurb.com/hoteis/naples/clarean-hotel-naples-JNP-JP039509?cmp=18055) Diárias a partir de R$189.88
+   > The Hotel Continent is one of the oldest hotels in Nikolayev. Its history was started in 1932 and now it offers guests of Nikolayev the impeccable quality of hotel services for near 90 years. The hotel is located in the heart of the city on Sovietskaya St
+-    [Rex Lifestyle Hotel in Napoli](https://www.hurb.com/hoteis/naples/rex-lifestyle-hotel-in-napoli-JNP-JP039543?cmp=18055) Diárias a partir de R$379.36
+   > O hotel situa-se centralmente numa área sossegada de Nápoles, em pleno distrito de Santa Lucia junto ao mar. Nas imediações encontram-se inúmeros locais de interesse como o Castelo Marinaro, o Castelo dell&apos; Ovo, os teatros exclusivos e os clubes da m
+-    [Hotel Naplesitaly](https://www.hurb.com/hoteis/naples/hotel-naplesitaly-JNP-JP02700X?cmp=18055) Diárias a partir de R$189.88
+   > null
+-    [Pinto Storey](https://www.hurb.com/hoteis/naples/pinto-storey-JNP-JP122811?cmp=18055) Diárias a partir de R$321.56
+   > Este confortável hotel está localizado em Naples. A ligação Wi-Fi à internet está disponível para um maior conforto e conveniência. A receção não está aberta durante todo o dia. Concebido a pensar nas necessidades dos hóspedes mais jovens, este estabeleci
+-    [Sant'Eligio Hotel](https://www.hurb.com/hoteis/naples/sant-eligio-hotel-JNP-JP742312?cmp=18055) Diárias a partir de R$216.41
+   > Hotel Sant &apos;Eligio is a 3 star hotel located in Naples, right in the historic city center and ten minutes far from the sea.The simple service of quality, the personalized treatment and tourist assistance combine to make your stay at Hotel Sant &apos;
+-    [Hotel Joyfull](https://www.hurb.com/hoteis/naples/hotel-joyfull-JNP-JP152498?cmp=18055) Diárias a partir de R$221.32
+   > 
+
+O quarto com ar condicionou, telefone de seletor minibar, direto, tevê-sentado, tudo com o banheiro confidencial com chuveiro ou tub e hairdryer.
+-    [L'Alloggio Dei Vassalli](https://www.hurb.com/hoteis/naples/l-alloggio-dei-vassalli-JNP-JP742362?cmp=18055) Diárias a partir de R$333.96
+   > O hotel situa-se na zona histórica da cidade, próximo de todas as facilidades da mesma (transportes públicos, porto, lojas, restaurantes e bares) e próximo do passeio marginal. Até ao aeroporto de Nápoles são cerca de 12 km.
+
+Este hotel familiar de 8 quar
+-    [Napoli Suite](https://www.hurb.com/hoteis/naples/napoli-suite-JNP-JP799489?cmp=18055) Diárias a partir de R$350.07
+   > OS HÓSPEDES QUE CHEGAM DEPOIS DE 5 P.M DEVEM INFORMAR O HOTEL SOBRE A HORA DE CHEGADA .
+A PARTIR DE 1º DE SETEMBRO AOS DOMINGOS OS CHECK-IN DEPOIS DAS 12:00 VÃO SER FEITOS NO HOTEL GARIBALDI .
+PARA QUALQUER INFORMAÇÃO CONTACTE-NOS
+
+Localizada em Naples, e
+-    [Golden Hotel](https://www.hurb.com/hoteis/naples/golden-hotel-JNP-JP347301?cmp=18055) Diárias a partir de R$432.46
+   > O hotel fica no centro de Nápoles, a poucos passos do centro histórico, da zona comercial, e dos principais locais artísticos. É perfeito para turistas chegarem ao porto em poucos minutos (embarcando nos hidrofólios, nos ferries rápidos, Metro del Mare, p
+-    [Hotel New Sayonara](https://www.hurb.com/hoteis/naples/hotel-new-sayonara-JNP-JP883802?cmp=18055) Diárias a partir de R$189.45
+   > Property Location A stay at Hotel New Sayonara places you in the heart of Naples, walking distance from Piazza Giuseppe Garibaldi and Porta Capuana. This inn is within close proximity of Castel Capuano and Santa Maria del Carmine.Rooms Make yourself at ho
+-    [Fly Boutique Hotel](https://www.hurb.com/hoteis/naples/fly-boutique-hotel-JNP-JP945388?cmp=18055) Diárias a partir de R$429.35
+   > Property Location A stay at Fly Boutique Hotel places you in the heart of Naples, walking distance from Santa Maria del Carmine and Museo Civico Filangeri. This inn is within close proximity of Piazza Giuseppe Garibaldi and Palazzo Marigliano.Rooms Make y
+-    [HOTEL GREEN PARK](https://www.hurb.com/hoteis/naples/hotel-green-park-JNP-JP214009?cmp=18055) Diárias a partir de R$211.06
+   > Este confortável hotel está localizado em Naples. Situado a 8. 0 km do centro da cidade, o hotel permite-lhe aceder facilmente a pé a variados locais de interesse. A 500 metro(s), os visitantes irão encontrar ligações de transporte que vão permitir que ex
+-    [Belle Arti Resort](https://www.hurb.com/hoteis/naples/belle-arti-resort-JNP-JP151122?cmp=18055) Diárias a partir de R$338.00
+   > Este simples bed and breakfast fica em Naples. Inserido a 100 metro(s) do centro da cidade, o imóvel permite-lhe um fácil acesso a tudo o que este destino tem para lhe oferecer. A 100 metro(s), os clientes irão encontrar ligações de transporte que vão per
+-    [Le Stanze del Vicerè](https://www.hurb.com/hoteis/naples/le-stanze-del-vicere-JNP-JP148627?cmp=18055) Diárias a partir de R$253.03
+   > The residence is located in via Stella, between via Toledo, famous high fashion street, and the Royal Palace of Capodimonte, centre of an important Museum of art and enchanting green park, ideal for walks and sporting activities.
+-    [Hotel Toledo](https://www.hurb.com/hoteis/naples/hotel-toledo-JNP-JP113146?cmp=18055) Diárias a partir de R$531.69
+   > Hotel Toledo Uma recepção calorosa espera por si no tamanho medio, 3 classificação das estrelas Hotel Toledo em Napoli. O Hotel não dispõe de estacionamento interior , no entanto tem estacionamento exterior disponivel. O hotel oferece instalação com resta
+-    [HOTEL NEAPOLIS](https://www.hurb.com/hoteis/naples/hotel-neapolis-JNP-JP039542?cmp=18055) Diárias a partir de R$294.74
+   > O hotel encontra-se num palácio do século XVII em plena zona antiga da cidade, a cerca de 200 m da Piazza Dante, perto do famoso distrito de Spaccanapoli. Alcançará facilmente a pé inúmeros estabelecimentos comerciais e bares, assim como uma ligação aos t
+-    [Albergo del Golfo - Napoli](https://www.hurb.com/hoteis/naples/albergo-del-golfo-napoli-JNP-JP211056?cmp=18055) Diárias a partir de R$276.83
+   > O hotel oferece uma localização excelente no coração de Nápoles, nas imediações do porto e da zona comercial de Via Roma. Fica próximo da Piazza Municipio (400 m), com o castelo Maschio Angioino, onde os hóspedes irão encontrar o porto e o pontão Beverell
+-    [Hotel Colombo](https://www.hurb.com/hoteis/naples/hotel-colombo-JNP-JP821713?cmp=18055) Diárias a partir de R$120.80
+   > Este agradável hotel fica em Naples. O estabelecimento encontra-se próximo das principais zonas de entretenimento. As ligações de transporte público encontram-se a poucos minutos a pé. O imóvel encontra-se a 2. 0 km da praia mais próxima. Os hóspedes pode
+-    [Hotel Nuovo Rebecchino](https://www.hurb.com/hoteis/naples/hotel-nuovo-rebecchino-JNP-JP152570?cmp=18055) Diárias a partir de R$239.82
+   > Localizado na entrada para o coração da antiga Nápoles, o Hotel Rebecchino é um dos hotéis mais antigos de Nápoles. Abriu pela primeira vez em 1890. Para uma estada confortável e relaxante em Nápoles, o nosso hotel tem quartos bem mobilados e bem equipado
+-    [Ausonia Bed & Breakfast](https://www.hurb.com/hoteis/naples/ausonia-bed-breakfast-JNP-JP838639?cmp=18055) Diárias a partir de R$248.03
+   > The hotel features a baggage storage service for a comfortable and relaxing stay. Wireless internet access is available to travellers in the public areas. Those arriving in their own vehicles can leave them in the car park of the establishment.
+. (* Sorry
+-    [Hotel Dei Mille](https://www.hurb.com/hoteis/naples/hotel-dei-mille-JNP-JP191981?cmp=18055) Diárias a partir de R$119.08
+   > Este agradável hotel fica em Naples. Situado no centro da cidade, o estabelecimento permite-lhe aceder facilmente a pé a variados locais de interesse. Existem ligações de transporte público a poucos minutos a pé. Os hóspedes poderão encontrar o aeroporto 
+-    [Hotel Principe Napolit'Amo](https://www.hurb.com/hoteis/naples/hotel-principe-napolit-amo-JNP-JP051333?cmp=18055) Diárias a partir de R$430.80
+   > Este despretensioso hotel fica em Naples. O número total de unidades é de 19. Este imóvel não aceita animais de estimação. 
+-    [Hotel Airone](https://www.hurb.com/hoteis/naples/hotel-airone-JNP-JP169334?cmp=18055) Diárias a partir de R$445.27
+   > O atractivo hotel urbano situa-se no centro da cidade de Nápoles. Nas imediações existem inúmeros restaurantes, bares, estabelecimentos comerciais e uma impulsiva vida nocturna. Alcançará confortavelmente a pé uma ligação à rede de transportes públicos. A
+-    [Hotel Il Convento](https://www.hurb.com/hoteis/naples/hotel-il-convento-JNP-JP039502?cmp=18055) Diárias a partir de R$413.96
+   > O hotel situa-se ao lado do Santuário de Santa Maria Francisca das Cinco Chagas, no coração do centro histórico de Nápoles, apenas a poucos passos da famosa zona pedonal de Via Toledo, com as suas lojas elegantes. As atracções das imediações incluem ainda
+-    [Le Terrazze di Neapolis](https://www.hurb.com/hoteis/naples/le-terrazze-di-neapolis-JNP-JP763017?cmp=18055) Diárias a partir de R$312.09
+   > Este acolhedor bed and breakfast fica em Naples. Aqueles que desejam escapar da agitação da rotina diária vão encontrar paz e tranquilidade neste alojamento. Os visitantes não serão incomodados durante a sua estadia, uma vez que não são permitidos animais
+
+## Hotéis 4 estrelas - ⭐️⭐️⭐️⭐️
+
+-    [Holiday Inn Naples](https://www.hurb.com/hoteis/naples/holiday-inn-naples-JNP-JP01981C?cmp=18055) Diárias a partir de R$411.84
+   > Este moderno hotel situa-se no Centro Direzionale (distrito empresarial de Nápoles) com fácil acesso às principais auto-estradas, ao aeroporto e à estação central de comboios. O centro da cidade, o cais Beverello (ferry para Ísquia, Capri e Procida) e a á
+-    [Palazzo Salgar](https://www.hurb.com/hoteis/naples/palazzo-salgar-JNP-JP428833?cmp=18055) Diárias a partir de R$513.94
+   > Este confortável hotel está situado em Naples. Inserido a 500 metro(s) do centro da cidade, o imóvel permite-lhe um fácil acesso a tudo o que este destino tem para lhe oferecer. As instalações contam com 85 acolhedoras unidades de alojamento. O Palazzo Sa
+-    [Hotel San Pietro](https://www.hurb.com/hoteis/naples/hotel-san-pietro-JNP-JP039582?cmp=18055) Diárias a partir de R$620.23
+   > Este agradável hotel está localizado em Naples. Situado a 10 metro(s) do centro da cidade, o imóvel permite-lhe aceder facilmente a pé a variados locais de interesse. A 10 metro(s), os visitantes irão encontrar ligações de transporte que vão permitir que 
+-    [Hotel Exe Majestic](https://www.hurb.com/hoteis/naples/hotel-exe-majestic-JNP-JP279117?cmp=18055) Diárias a partir de R$294.37
+   > O hotel situa-se no centro da cidade de Nápoles, nas proximidades de diversos estabelecimentos comerciais e da noite exclusiva da cidade. Nas imediações deste hotel urbano encontrará inúmeras atracções, como por exemplo o Museu Villa Pignatelli, o Aquário
+-    [B&B Attico Partenopeo](https://www.hurb.com/hoteis/naples/b-b-attico-partenopeo-JNP-JP191505?cmp=18055) Diárias a partir de R$363.94
+   > Attico Partenopeo O Attico Partenopeo esta situado no Napoli. Os hospedes do hotel podem desfrutar de uma refeição no restaurante . Comodidades dos quartos Attico Partenopeo. O hotel possui quartos para fumantes, (specifique por favor no momento da reserv
+-    [Hotel Palazzo Decumani](https://www.hurb.com/hoteis/naples/hotel-palazzo-decumani-JNP-JP977169?cmp=18055) Diárias a partir de R$702.89
+   > Guest accommodation comprises 28 rooms. Services and facilities at the hotel include a bar and room service. Wireless internet access is available to guests in the public areas.
+. (* Sorry, this information is not available in the selected language and is
+-    [Renaissance Naples Hotel Mediterraneo](https://www.hurb.com/hoteis/naples/renaissance-naples-hotel-mediterraneo-JNP-JP151932?cmp=18055) Diárias a partir de R$498.48
+   > O centro de Nápoles situa-se nas proximidades da área comercial Via Roma, assim como da Galleria Umberto, da Ópera e do Palácio Real. Nas imediações encontram-se também as ruas Via Filangieri e Via Chiaia. Até à paragem de transportes públicos mais próxim
+-    [Hotel Naples](https://www.hurb.com/hoteis/naples/hotel-naples-JNP-JP096602?cmp=18055) Diárias a partir de R$360.94
+   > Este hotel, com decoração Art Deco, está situado no centro da parte histórica de Nápoles, muito perto da zona universitária, um dos bairros mais populares da cidade. A poucos passos do hotel, encontram-se, tanto a estação ferroviária como os portos de Por
+-    [BEST WESTERN Hotel Paradiso](https://www.hurb.com/hoteis/naples/best-western-hotel-paradiso-JNP-JP150512?cmp=18055) Diárias a partir de R$538.58
+   > O hotel goza de uma excelente localização, no topo da Colina Posillipo, com uma incrível vista do Golfo de Nápoles e o Vesúvio, à distância. O hotel fica um pouco fora do caminho, mas ideal para quem deseja ficar longe do ruído e da agitação da cidade e a
+-    [B&B Mergellina](https://www.hurb.com/hoteis/naples/b-b-mergellina-JNP-JP359953?cmp=18055) Diárias a partir de R$300.06
+   > O Mergellina esta situado no Napoli. O hotel oferece estacionamento exterior. O hotel oferece instalações com restaurante. Quartos no Mergellina. Todos os quartos tem secador do cabelo. O hotel possui quartos para fumantes e tambem e possivel fumar nas ar
+-    [Holiday Inn Napoles](https://www.hurb.com/hoteis/naples/holiday-inn-napoles-JNP-JP118486?cmp=18055) Diárias a partir de R$474.72
+   > Este moderno hotel situa-se no Centro Direzionale (distrito empresarial de Nápoles) com fácil acesso às principais auto-estradas, ao aeroporto e à estação central de comboios. O centro da cidade, o cais Beverello (ferry para Ísquia, Capri e Procida) e a á
+-    [Palazzo Alabardieri](https://www.hurb.com/hoteis/naples/palazzo-alabardieri-JNP-JP294649?cmp=18055) Diárias a partir de R$598.59
+   > O hotel situa-se no centro da cidade, na zona pedonal mais exclusiva de Nápoles. O passeio marginal fica nas imediações e o centro histórico encontra-se a poucos minutos a pé. Localiza-se no centro da zona comercial mais prestigiada da cidade, perto da Pi
+-    [Hotel Suite Esedra](https://www.hurb.com/hoteis/naples/hotel-suite-esedra-JNP-JP152299?cmp=18055) Diárias a partir de R$175.20
+   > O apreciado hotel urbano situa-se no centro da cidade de Nápoles. Nas imediações existem inúmeros restaurantes, bares, estabelecimentos comerciais e uma impulsiva vida nocturna. Alcançará confortavelmente a pé a estação de comboios mais próxima e uma liga
+-    [Hotel Cimarosa ***](https://www.hurb.com/hoteis/naples/hotel-cimarosa-JNP-JP992271?cmp=18055) Diárias a partir de R$467.14
+   > Hotel Cimarosa Bem vindo ao 3 classificação das estrelas Hotel Cimarosa em Napoli. O Hotel não dispõe de estacionamento interior , no entanto tem estacionamento exterior disponivel. Os hospedes do hotel podem jantar no restaurante. Comodidades dos quartos
+-    [Ramada Naples](https://www.hurb.com/hoteis/naples/ramada-naples-JNP-JP979390?cmp=18055) Diárias a partir de R$395.68
+   > O hotel situa-se em Nápoles apenas a cerca de 200 m de ligações à rede de transportes públicos na Piazza Garibaldi. Poderá facilmente alcançar o centro da cidade, Pompeia, Ercolano e a costa de Amalfi. O centro da cidade fica a cerca de 1 km e o porto de 
+-    [Hotel NH Napoli Ambassador](https://www.hurb.com/hoteis/naples/hotel-nh-napoli-ambassador-JNP-JP148636?cmp=18055) Diárias a partir de R$764.15
+   > Este hotel localiza-se em pleno coração da cidade, a apenas 200 m do centro com as suas inúmeras lojas. A apenas alguns passos do edifício encontram-se transportes públicos, o centro histórico grego/romano, o mar, o palácio real e o museu arqueológico, as
+-    [Hotel Ferdinando II](https://www.hurb.com/hoteis/naples/hotel-ferdinando-ii-JNP-JP150962?cmp=18055) Diárias a partir de R$325.70
+   > Este agradável hotel, pode encontrar-se em Naples. As instalações contam com 20 acolhedores quartos de hóspedes. O Ferdinando II foi completamente remodelado em 2011. O Ferdinando II é ideal para uma estadia produtiva, graças ao acesso à Internet disponív
+-    [Boutique Hotel Piazza Carita](https://www.hurb.com/hoteis/naples/boutique-hotel-piazza-carita-JNP-JP01034T?cmp=18055) Diárias a partir de R$485.30
+   > Algumas das comodidades e serviços em destaque incluem internet sem fios grátis, serviços de concierge e um serviço de baby-sitter.
+-    [Millennium Gold Hotel****](https://www.hurb.com/hoteis/naples/millennium-gold-hotel-JNP-JP151213?cmp=18055) Diárias a partir de R$303.21
+   > Especialmente concebido para famílias, este encantador hotel fica em Naples. Situado a 4. 0 km do centro da cidade, o alojamento permite-lhe aceder facilmente a pé a variados locais de interesse. O estabelecimento encontra-se a 4. 0 km das principais zona
+-    [La Ciliegina Lifestyle Hotel](https://www.hurb.com/hoteis/naples/la-ciliegina-lifestyle-hotel-JNP-JP153577?cmp=18055) Diárias a partir de R$888.70
+   > Este hotel localiza-se no coração de Nápoles, possibilitando um fácil acesso às muitas atrações da cidade. Os hóspedes encontrar-se-ão a uma curta distância do Teatro San Carlo, do Castel Nuovo, da Umberto I Gallery e de Molo Angioino. O Palácio Real e a 
+-    [Hotel Lanfipe Palace](https://www.hurb.com/hoteis/naples/hotel-lanfipe-palace-JNP-JP669449?cmp=18055) Diárias a partir de R$484.36
+   > Este confortável hotel encontra-se em Naples. Localizado mesmo no centro da cidade, o imóvel permite-lhe um fácil acesso a tudo o que este destino tem para lhe oferecer. O estabelecimento está a poucos minutos a pé das principais zonas de entretenimento. 
+-    [Costantinopoli 104](https://www.hurb.com/hoteis/naples/costantinopoli-104-JNP-JP230285?cmp=18055) Diárias a partir de R$575.43
+   > Este confortável hotel está localizado em Naples. Existem um total de 19 quartos de hóspedes no Costantinopoli 104. Aqueles que não gostam de animais podem desfrutar de sua estadia, uma vez que este alojamento não permite animais de estimação. 
+-    [Charming International Hotel](https://www.hurb.com/hoteis/naples/charming-international-hotel-JNP-JP739739?cmp=18055) Diárias a partir de R$354.05
+   > Este confortável hotel fica em Naples. Localizado a 5. 0 km do centro da cidade, o imóvel permite-lhe um fácil acesso a tudo o que este destino tem para lhe oferecer. Os visitantes irão encontrar diversas ligações a meios de transporte público a 2. 0 km d
+-    [Decumani Hotel De Charme****](https://www.hurb.com/hoteis/naples/decumani-hotel-de-charme-JNP-JP039489?cmp=18055) Diárias a partir de R$727.22
+   > Este hotel encantador situa-se no centro histórico da cidade, na zona de Decumani, a poucos minutos das principais igrejas e locais históricos. Fica a cerca de 15 minutos a pé da estação central de comboios ou do porto, com fácil acesso a Pompeia, Ercolan
+-    [Hotel Mercure Napoli Centro Angioino](https://www.hurb.com/hoteis/naples/hotel-mercure-napoli-centro-angioino-JNP-JP121056?cmp=18055) Diárias a partir de R$519.86
+   > Situado no coraÃ§Ã£o de NÃ¡poles, perto do centro histÃ³rico e do PalÃ¡cio Real, o hotel tem 99 quartos com A/C. A 5 min. do ferry para Capri, Ischia, Sorrento e SicÃ­lia e a 150 m do centro de convenÃ§Ãµes Expo Napoli situado perto do terminal do ferry. 
+-    [Caravaggio hotel](https://www.hurb.com/hoteis/naples/caravaggio-hotel-JNP-JP121463?cmp=18055) Diárias a partir de R$275.26
+   > Este hotel exclusivo situa-se no centro histórico da cidade de Nápoles na praça mais antiga desta metrópole, a Piazza Riario Sforza. Alcançará facilmente em poucos minutos a pé inúmeros estabelecimentos comerciais e locais de entretenimento, assim como ou
+-    [Hotel Serius](https://www.hurb.com/hoteis/naples/hotel-serius-JNP-JP113159?cmp=18055) Diárias a partir de R$232.76
+   > O hotel situa-se no centro da Viale Augusto. Até ao Aeroporto Internacional são cerca de 5 km e até às ligações à rede de transportes públicos mais próximas são apenas 50 m. A estação de comboios de Campi Flegrei e a Mostra d&apos;Oltremare em Nápoles (Fu
+-    [UNA Hotel Napoli](https://www.hurb.com/hoteis/naples/una-hotel-napoli-JNP-JP996330?cmp=18055) Diárias a partir de R$630.23
+   > Este encantador hotel está localizado em Naples. Inserido a poucos minutos a pé do centro da cidade, o estabelecimento permite-lhe um fácil acesso a tudo o que este destino tem para lhe oferecer. O número total de unidades é de 89. Tendo sido construído e
+-    [Culture Hotel Centro Storico](https://www.hurb.com/hoteis/naples/culture-hotel-centro-storico-JNP-JP151259?cmp=18055) Diárias a partir de R$413.96
+   > Este hotel de design único está situado no coração de Nápoles, a apenas 850 metros do movimentado porto e a dez minutos de atrações como o Castel Nuovo e o Teatro di San Carlo. As estações de metrô Universita e Toledo ficam a cerca de cinco minutos a pé, 
+-    [Grand Hotel Santa Lucia](https://www.hurb.com/hoteis/naples/grand-hotel-santa-lucia-JNP-JP148485?cmp=18055) Diárias a partir de R$466.93
+   > O hotel situa-se junto ao romântico porto de Sta Lucia, perto da Ópera de San Carlo. É um ponto de encontro bastante apreciado, visto localizar-se no cenário encantador da marina de Sta Lucia e da Ópera. Do hotel terá também uma vista deslumbrante para o 
+-    [Hotel Kleopatra](https://www.hurb.com/hoteis/naples/hotel-kleopatra-JNP-JP116013?cmp=18055) Diárias a partir de R$214.82
+   > Este confortável hotel fica em Naples. O imóvel possui 18 quartos de hóspedes acolhedores. É possível aceder ao Wi-Fi em todo o hotel. Uma vez que este hotel dispõe de uma receção aberta 24 horas por dia, os hóspedes serão sempre bem-vindos. Infelizmente,
+-    [Hotel San Paolo](https://www.hurb.com/hoteis/naples/hotel-san-paolo-JNP-JP152019?cmp=18055) Diárias a partir de R$262.91
+   > Este fantástico hotel situa-se no centro de Nápoles. Nas proximidades do hotel encontram-se diversos estabelecimentos comerciais e locais de entretenimento, bem como os locais de interesse e as atracções da cidade. A paragem de transportes públicos mais p
+-    [Hotel Santa Brigida](https://www.hurb.com/hoteis/naples/hotel-santa-brigida-JNP-JP986237?cmp=18055) Diárias a partir de R$572.68
+   > Este confortável hotel, que se encontra em Naples, é uma ótima opção gay friendly. Inserido a poucos minutos a pé do centro da cidade, o alojamento permite-lhe um fácil acesso a tudo o que este destino tem para lhe oferecer. Os hóspedes podem encontrar o 
+-    [Hotel Nuvò](https://www.hurb.com/hoteis/naples/hotel-nuvo-JNP-JP154350?cmp=18055) Diárias a partir de R$191.85
+   > Este hotel de negócios com ar condicionado fica a apenas 5 minutos de carros do centro de convenções em Fiera-Guorigrotta. Os seus hóspedes estarão a apenas 50 metros da linha de comboio Cumana, que os poderá levar até ao centro de Nápoles em 12 minutos. 
+-    [Grand Hotel Oriente Napoli](https://www.hurb.com/hoteis/naples/grand-hotel-oriente-napoli-JNP-JP280341?cmp=18055) Diárias a partir de R$705.41
+   > Este elegante hotel situa-se no coração de Nápoles, a poucos minutos a pé das áreas comerciais Via Chiaia e Via Filangieri. A praia e os bairros comerciais são alcançáveis em poucos minutos a pé. A cerca de 3 km do hotel encontram-se os transportes públic
+-    [Hotel Palazzo Esedra](https://www.hurb.com/hoteis/naples/hotel-palazzo-esedra-JNP-JP221591?cmp=18055) Diárias a partir de R$683.62
+   > O hotel está situado num edifício imponente desenhado por Marcello Canino e faz parte do Centro de Exposições Mostra D&apos;Oltremare em Nápoles. As paradas de trem e de metrô Mostra D&apos;Oltremare e Campi Flegrei encontram-se na porta do hotel, oferece
+-    [Hotel Real Orto Botanico](https://www.hurb.com/hoteis/naples/hotel-real-orto-botanico-JNP-JP914336?cmp=18055) Diárias a partir de R$281.15
+   > O atractivo hotel, bastante apropriado para famílias, situa-se no centro de Nápoles, apenas a cerca de 2 km do aeroporto Capodichino. Localiza-se em frente ao Jardim Botânico Real, a poucos passos do Museu Nacional Arqueológico e da Catedral. Até à praia 
+-    [Montespina Park Hotel](https://www.hurb.com/hoteis/naples/montespina-park-hotel-JNP-JP144440?cmp=18055) Diárias a partir de R$503.56
+   > O hotel situa-se na zona Este de Nápoles, perto das águas termais de Agnano. Localizado no centro de um bonito parque, este hotel é um local agradável, tanto para viagens de negócios, como para passar as suas férias. Bastam apenas 10 minutos de viagem até
+-    [Hotel Royal Continental](https://www.hurb.com/hoteis/naples/hotel-royal-continental-JNP-JP216520?cmp=18055) Diárias a partir de R$587.76
+   > O hotel situa-se a poucos metros do centro histórico de Nápoles. É um ponto de partida ideal para explorar a cidade. Aqui encontrará vários estabelecimentos comerciais e locais de entretenimento (teatros, museus, etc.). Até aos transportes públicos são ce
+-    [Ranch Palace Hotel](https://www.hurb.com/hoteis/naples/ranch-palace-hotel-JNP-JP771251?cmp=18055) Diárias a partir de R$337.39
+   > Localizado em Naples, este confortável hotel é ideal para famílias. Localizado a 8. 0 km do centro da cidade, o hotel permite-lhe um fácil acesso a tudo o que este destino tem para lhe oferecer. Estão disponíveis 25 quartosde hóspedes para conveniência do
+-    [Le Cheminèe Business Hotel](https://www.hurb.com/hoteis/naples/le-cheminee-business-hotel-JNP-JP971349?cmp=18055) Diárias a partir de R$214.71
+   > O hotel situa-se no centro de Nápoles, a cerca de 1,5 km da zona histórica e a 500 m do Centro Direzionale, a área comercial e financeira da cidade. Nas imediações encontrará um terminal de autocarros e ligações à rede de transportes públicos. Próximo do 
+-    [Hotel Miramare](https://www.hurb.com/hoteis/naples/hotel-miramare-JNP-JP156455?cmp=18055) Diárias a partir de R$545.56
+   > O hotel situa-se entre a Piazza del Plebiscito (a 200 m) e o Castel dell&apos;Ovo, no passeio marginal, contando com excelentes ligações de transportes. O centro da localidade fica a 500 m do estabelecimento, e os hóspedes irão encontrar restaurantes, bar
+-    [Culture Hotel Villa Capodimonte](https://www.hurb.com/hoteis/naples/culture-hotel-villa-capodimonte-JNP-JP039501?cmp=18055) Diárias a partir de R$229.74
+   > O encantador hotel de negócios situa-se a apenas alguns passos do centro histórico, a 1 km da saída da auto-estrada e a apenas 7 km do aeroporto, o que o torna no local ideal para viajantes, tanto em negócios, como em lazer. Os hóspedes encontrarão o parq
+-    [Hotel San Francesco al Monte](https://www.hurb.com/hoteis/naples/hotel-san-francesco-al-monte-JNP-JP152397?cmp=18055) Diárias a partir de R$734.32
+   > O hotel situa-se numa área com um excelente panorama de Nápoles. Dada a sua localização perto de uma estação de metro terá bons acessos até ao centro histórico e a toda a cidade com inúmeros restaurantes, bares, pubs, estação de comboios, paragem de autoc
+-    [Eurostars Hotel Excelsior](https://www.hurb.com/hoteis/naples/eurostars-hotel-excelsior-JNP-JP080344?cmp=18055) Diárias a partir de R$534.10
+   > O hotel situa-se no elegante distrito de Nápoles nas imediações encontrará lojas famosas, assim como os locais de interesse da cidade. Até à paragem de transportes públicos mais próxima bastam poucos minutos a pé (cerca de 100 m).
+
+O hotel, com vista para
+-    [Hotel Barbato](https://www.hurb.com/hoteis/naples/hotel-barbato-JNP-JP039518?cmp=18055) Diárias a partir de R$137.81
+   > Renovated from a 19th-century farmhouse, hotel is positioned near Naples Capodichino Airport. The city centre is within easy reach by public transport.
+-    [Partenope Relais](https://www.hurb.com/hoteis/naples/partenope-relais-JNP-JP115213?cmp=18055) Diárias a partir de R$526.97
+   > Este elegante e moderno hotel boutique possui uma localização magnífica à beira-mar, em Nápoles e oferece vistas impressionantes do Vesúvio e da ilha de Capri. O hotel está situado num edifício neoclássico restaurado à beira-mar. A Piazza Plebiscito, o Te
+-    [Magri's Hotel](https://www.hurb.com/hoteis/naples/magri-s-hotel-JNP-JP812950?cmp=18055) Diárias a partir de R$273.18
+   > Especialmente concebido para famílias, este encantador hotel fica em Naples. Situado a 4. 0 km do centro da cidade, o estabelecimento permite-lhe aceder facilmente a pé a variados locais de interesse. As principais zonas de entretenimento encontram-se a 3
+-    [Hotel Art Resort Galleria Umberto](https://www.hurb.com/hoteis/naples/hotel-art-resort-galleria-umberto-JNP-JP143123?cmp=18055) Diárias a partir de R$565.09
+   > Este resort desfruta de uma localização estratégica na cidade de Nápoles, no interior da famosa Galleria Umberto I. A partir do hotel, os hóspedes poderão facilmente chegar à Piazza Plebiscito a pé (2 minutos), onde encontrarão o Palácio Real e o Teatro S
+-    [SANTA CHIARA BOUTIQUE HOTEL](https://www.hurb.com/hoteis/naples/santa-chiara-boutique-hotel-JNP-JP456356?cmp=18055) Diárias a partir de R$687.02
+   > Ubicación del establecimiento Si te alojas en Santa Chiara Boutique Hotel, en Nápoles (Centro histórico), estarás a pocos minutos de Santa Chiara y Complesso Museale di Santa Chiara. Este hotel de 4 estrellas se encuentra muy cerca de Piazza San Domenico 
+-    [Hotel Palazzo Caracciolo Napoli MGallery by Sofitel](https://www.hurb.com/hoteis/naples/hotel-palazzo-caracciolo-napoli-mgallery-by-sofitel-JNP-JP039537?cmp=18055) Diárias a partir de R$531.33
+   > O hotel possui uma excelente localização, no coração de Nápoles, a poucos minutos das principais atrações da cidade. A famosa Catedral de Nápoles encontra-se apenas a 5 minutos a pé e a Piazza Cavour a menos de 10 minutos, a partir de lá, existe transport
+-    [Hotel Napoli - Palazzo Turchini](https://www.hurb.com/hoteis/naples/hotel-napoli-palazzo-turchini-JNP-JP153544?cmp=18055) Diárias a partir de R$570.70
+   > Este encantador hotel fica em Naples. O número total de quartos é de 27. Este hotel foi remodelado em 2010. O imóvel oferece acesso à internet para conveniência dos hóspedes. Todos os que ficam neste alojamento podem contactar a receção a qualquer hora do
+-    [Grand Hotel Capodimonte](https://www.hurb.com/hoteis/naples/grand-hotel-capodimonte-JNP-JP850758?cmp=18055) Diárias a partir de R$371.06
+   > Este agradável hotel encontra-se em Naples. As instalações contam com 35 acolhedoras unidades. Além do mais, existe ligação à Internet sem fios acessível nas áreas comuns. A receção está disponível 24 horas por dia. Este hotel não aceita animais de estima
+-    [Starhotels Terminus](https://www.hurb.com/hoteis/naples/starhotels-terminus-JNP-JP772020?cmp=18055) Diárias a partir de R$659.87
+   > Este moderno hotel situa-se perto da estação central de comboios.
+
+O hotel, construído em 1901 e renovado em 1994, dispõe de um edifício principal de 7 andares com um total de 168 quartos. O edifício contempla uma recepção com elevador. Os hóspedes poderã
+
+## Hotéis 5 estrelas - ⭐️⭐️⭐️⭐️⭐️
+
+-    [Romeo hotel](https://www.hurb.com/hoteis/naples/romeo-hotel-JNP-JP016322?cmp=18055) Diárias a partir de R$1,440.93
+   > Localização
+O hotel encontra-se em frente à estação marítima e a poucos passos do Beverello, um ponto de partida ideal para visitar as ilhas de Capri, Ischis, Procida e Sorrento e a Costa de Amalfi. Nas imediações existem restaurantes, bares e pubs e esta
+-    [Grand Hotel Vesuvio](https://www.hurb.com/hoteis/naples/grand-hotel-vesuvio-JNP-JP057777?cmp=18055) Diárias a partir de R$987.43
+   > O hotel situa-se perto do mar a cerca de 700 m do centro de Nápoles e a cerca de 1 km dos transportes públicos mais próximos. Nas imediações encontrará inúmeros estabelecimentos comerciais como o Palácio Real, a Piazza del Plebiscito e o Teatro San Carlo.
+-    [Grand Hotel Parker’s](https://www.hurb.com/hoteis/naples/grand-hotel-parkers-JNP-JP788438?cmp=18055) Diárias a partir de R$1,108.26
+   > Experimente a atmosfera única deste hotel onde tudo, até ao mais ínfimo detalhe, foi concebido para realizar os sonhos dos hóspedes. Mobília preciosa e rara em harmonia com a escolha do mármore: o prelúdio para as férias ideais. Este hotel goza de uma exc
