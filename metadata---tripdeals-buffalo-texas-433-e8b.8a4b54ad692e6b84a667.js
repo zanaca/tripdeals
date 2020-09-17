@@ -1,1 +1,0 @@
-(window.webpackJsonp=window.webpackJsonp||[]).push([[7],{42:function(a){a.exports=JSON.parse('{"id":"buffalo-texas","title":"Buffalo, Texas","description":"","source":"/Users/zanaca/dev/github-hack-product/docusaurus/contents/buffalo-texas.md","permalink":"/tripdeals/buffalo-texas"}')}}]);
