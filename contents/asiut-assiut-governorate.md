@@ -8,5 +8,5 @@ title: Asiut, Assiut Governorate
 
 ##  2 star hotels - ⭐️⭐️
 
--    [Assiut hotels Armed Forces](https://us.hurb.com/br/hotels/asiut/assiut-hotels-armed-forces-JNP-JP855612?cmp=18055) Prices from R$308.53
+-    [Assiut hotels Armed Forces](https://us.hurb.com/hotels/asiut/assiut-hotels-armed-forces-JNP-JP855612?cmp=18055) Prices from R$308.53
    > Enjoy recreation amenities such as an outdoor pool or take in the view from a garden. This hotel also features complimentary wireless Internet access, concierge services, and a television in a common area.

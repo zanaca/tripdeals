@@ -1,6 +1,6 @@
 module.exports = {
   title: 'Trip Deals',
-  tagline: 'Best deals for your vacation',
+  tagline: 'Best deals for your leisure',
   url: 'https://zanaca.github.io',
   baseUrl: '/tripdeals/',
   favicon: 'img/favicon.png',
