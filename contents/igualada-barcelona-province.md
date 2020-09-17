@@ -8,5 +8,5 @@ title: Igualada, Barcelona Province
 
 ##  3 star hotels - ⭐️⭐️⭐️
 
--    [America Igualada Hotel](https://www.hurb.com/br/hotels/igualada/america-igualada-hotel-JNP-JP006189?cmp=18055) Prices from R$269.17
+-    [America Igualada Hotel](https://us.hurb.com/br/hotels/igualada/america-igualada-hotel-JNP-JP006189?cmp=18055) Prices from R$269.17
    > Take in the views from a garden and make use of amenities such as complimentary wireless Internet access and concierge services.

@@ -1,6 +1,6 @@
 module.exports = {
   title: 'Trip Deals',
-  tagline: 'Ofertas incríveis para sua viagem',
+  tagline: 'Best deals for your vacation',
   url: 'https://zanaca.github.io',
   baseUrl: '/tripdeals/',
   favicon: 'img/favicon.png',
@@ -13,19 +13,22 @@ module.exports = {
         alt: 'Trip Deals Logo',
         src: 'img/logo.svg',
       },
-      links: [{
-        to: 'deals',
-        label: 'Ofertas',
-        position: 'left'
-      }, {
-        to: 'https://www.hurb.com/aud/https://www.hurb.com?cmp=18055',
-        label: 'Hurb',
-        position: 'right'
-      }],
+      links: [
+        {
+          to: 'deals',
+          label: 'Deals',
+          position: 'left',
+        },
+        {
+          to: 'https://us.hurb.com/aud/https://us.hurb.com?cmp=18055',
+          label: 'Hurb',
+          position: 'right',
+        },
+      ],
     },
     footer: {
       style: 'dark',
-      copyright: `Copyright © ${new Date().getFullYear()} Zanaca. Feito com Docusaurus.  Icones feitos por Freepik em www.flaticon.com`,
+      copyright: `Copyright © ${new Date().getFullYear()} Zanaca. Built with Docusaurus.  Icons by Freepik @ www.flaticon.com`,
     },
   },
   presets: [
@@ -51,11 +54,12 @@ module.exports = {
       },
     ],
     [
-    '@docusaurus/plugin-sitemap',
-    {
-      cacheTime: 600 * 1000, // 600 sec - cache purge period
-      changefreq: 'weekly',
-      priority: 0.5,
-    },
-  ]],
+      '@docusaurus/plugin-sitemap',
+      {
+        cacheTime: 600 * 1000, // 600 sec - cache purge period
+        changefreq: 'weekly',
+        priority: 0.5,
+      },
+    ],
+  ],
 };

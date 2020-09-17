@@ -1,6 +1,5 @@
 module.exports = {
   docs: {
-    Navegação: ['deals'],
-
+    Navigation: ['deals'],
   },
 };
