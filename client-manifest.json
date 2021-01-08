@@ -81,16 +81,16 @@
     "3": {
       "css": [
         {
-          "file": "main.af5e03b25e6e9ae6979a.css",
-          "hash": "af5e03b25e6e9ae6979a",
-          "publicPath": "/tripdeals/main.af5e03b25e6e9ae6979a.css"
+          "file": "main.393d733911d9dc425a7d.css",
+          "hash": "393d733911d9dc425a7d",
+          "publicPath": "/tripdeals/main.393d733911d9dc425a7d.css"
         }
       ],
       "js": [
         {
-          "file": "main.af5e03b25e6e9ae6979a.js",
-          "hash": "af5e03b25e6e9ae6979a",
-          "publicPath": "/tripdeals/main.af5e03b25e6e9ae6979a.js"
+          "file": "main.393d733911d9dc425a7d.js",
+          "hash": "393d733911d9dc425a7d",
+          "publicPath": "/tripdeals/main.393d733911d9dc425a7d.js"
         }
       ]
     },
