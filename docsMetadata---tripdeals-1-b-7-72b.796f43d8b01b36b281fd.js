@@ -1,1 +1,0 @@
-(window.webpackJsonp=window.webpackJsonp||[]).push([[2],{40:function(o){o.exports=JSON.parse('{"docs":{},"docsDir":"/Users/zanaca/dev/github-hack-product/docusaurus/contents","docsSidebars":{"docs":[{"type":"category","label":"Navigation","items":[{"type":"doc","id":"deals"}]}]},"sourceToPermalink":{},"permalinkToId":{}}')}}]);

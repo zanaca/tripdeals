@@ -56,75 +56,75 @@
     "1": {
       "css": [
         {
-          "file": "component---users-zanaca-dev-github-hack-product-docusaurus-website-src-pages-index-js-8-b-3-612.8de035a53decc8d6adc1.css",
-          "hash": "8de035a53decc8d6adc1",
-          "publicPath": "/tripdeals/component---users-zanaca-dev-github-hack-product-docusaurus-website-src-pages-index-js-8-b-3-612.8de035a53decc8d6adc1.css"
+          "file": "component---users-zanaca-dev-github-hack-product-docusaurus-website-src-pages-index-js-8-b-3-612.a3075b55d6d8250be6b8.css",
+          "hash": "a3075b55d6d8250be6b8",
+          "publicPath": "/tripdeals/component---users-zanaca-dev-github-hack-product-docusaurus-website-src-pages-index-js-8-b-3-612.a3075b55d6d8250be6b8.css"
         }
       ],
       "js": [
         {
-          "file": "component---users-zanaca-dev-github-hack-product-docusaurus-website-src-pages-index-js-8-b-3-612.8de035a53decc8d6adc1.js",
-          "hash": "8de035a53decc8d6adc1",
-          "publicPath": "/tripdeals/component---users-zanaca-dev-github-hack-product-docusaurus-website-src-pages-index-js-8-b-3-612.8de035a53decc8d6adc1.js"
+          "file": "component---users-zanaca-dev-github-hack-product-docusaurus-website-src-pages-index-js-8-b-3-612.a3075b55d6d8250be6b8.js",
+          "hash": "a3075b55d6d8250be6b8",
+          "publicPath": "/tripdeals/component---users-zanaca-dev-github-hack-product-docusaurus-website-src-pages-index-js-8-b-3-612.a3075b55d6d8250be6b8.js"
         }
       ]
     },
     "2": {
       "js": [
         {
-          "file": "docsMetadata---tripdeals-1-b-7-72b.796f43d8b01b36b281fd.js",
-          "hash": "796f43d8b01b36b281fd",
-          "publicPath": "/tripdeals/docsMetadata---tripdeals-1-b-7-72b.796f43d8b01b36b281fd.js"
+          "file": "docsMetadata---tripdeals-1-b-7-72b.1aaa31920478d6fa41ed.js",
+          "hash": "1aaa31920478d6fa41ed",
+          "publicPath": "/tripdeals/docsMetadata---tripdeals-1-b-7-72b.1aaa31920478d6fa41ed.js"
         }
       ]
     },
     "3": {
       "css": [
         {
-          "file": "main.0cea808627b8e95df2e5.css",
-          "hash": "0cea808627b8e95df2e5",
-          "publicPath": "/tripdeals/main.0cea808627b8e95df2e5.css"
+          "file": "main.af5e03b25e6e9ae6979a.css",
+          "hash": "af5e03b25e6e9ae6979a",
+          "publicPath": "/tripdeals/main.af5e03b25e6e9ae6979a.css"
         }
       ],
       "js": [
         {
-          "file": "main.0cea808627b8e95df2e5.js",
-          "hash": "0cea808627b8e95df2e5",
-          "publicPath": "/tripdeals/main.0cea808627b8e95df2e5.js"
+          "file": "main.af5e03b25e6e9ae6979a.js",
+          "hash": "af5e03b25e6e9ae6979a",
+          "publicPath": "/tripdeals/main.af5e03b25e6e9ae6979a.js"
         }
       ]
     },
     "4": {
       "js": [
         {
-          "file": "metadata---tripdeals-46-c-686.3a7ae4709ddf95fb2ad7.js",
-          "hash": "3a7ae4709ddf95fb2ad7",
-          "publicPath": "/tripdeals/metadata---tripdeals-46-c-686.3a7ae4709ddf95fb2ad7.js"
+          "file": "metadata---tripdeals-46-c-686.bda0ba2d345783ff71a9.js",
+          "hash": "bda0ba2d345783ff71a9",
+          "publicPath": "/tripdeals/metadata---tripdeals-46-c-686.bda0ba2d345783ff71a9.js"
         }
       ]
     },
     "5": {
       "js": [
         {
-          "file": "runtime~main.5ee3e995b69fb3253ab3.js",
-          "hash": "5ee3e995b69fb3253ab3",
-          "publicPath": "/tripdeals/runtime~main.5ee3e995b69fb3253ab3.js"
+          "file": "runtime~main.6e3be59b89aabee8b567.js",
+          "hash": "6e3be59b89aabee8b567",
+          "publicPath": "/tripdeals/runtime~main.6e3be59b89aabee8b567.js"
         }
       ]
     },
     "6": {
       "css": [
         {
-          "file": "6.3e4dcf27e24265e86c4a.css",
-          "hash": "3e4dcf27e24265e86c4a",
-          "publicPath": "/tripdeals/6.3e4dcf27e24265e86c4a.css"
+          "file": "6.2b5b22bfa87ba61e4075.css",
+          "hash": "2b5b22bfa87ba61e4075",
+          "publicPath": "/tripdeals/6.2b5b22bfa87ba61e4075.css"
         }
       ],
       "js": [
         {
-          "file": "6.3e4dcf27e24265e86c4a.js",
-          "hash": "3e4dcf27e24265e86c4a",
-          "publicPath": "/tripdeals/6.3e4dcf27e24265e86c4a.js"
+          "file": "6.2b5b22bfa87ba61e4075.js",
+          "hash": "2b5b22bfa87ba61e4075",
+          "publicPath": "/tripdeals/6.2b5b22bfa87ba61e4075.js"
         }
       ]
     },
