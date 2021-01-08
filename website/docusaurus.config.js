@@ -15,6 +15,11 @@ module.exports = {
       },
       links: [
         {
+          to: 'deals',
+          label: 'Deals',
+          position: 'left',
+        },
+        {
           to: 'https://us.hurb.com/aud/https://us.hurb.com?cmp=18055',
           label: 'Hurb',
           position: 'right',
