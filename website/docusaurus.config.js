@@ -15,7 +15,7 @@ module.exports = {
       },
       links: [
         {
-          to: 'deals',
+          to: '/',
           label: 'Deals',
           position: 'left',
         },
