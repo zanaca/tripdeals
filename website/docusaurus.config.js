@@ -13,14 +13,14 @@ module.exports = {
         alt: 'Trip Deals Logo',
         src: 'img/logo.svg',
       },
-      links: [
+      items: [
         {
           to: 'deals',
           label: 'Deals',
           position: 'left',
         },
         {
-          to: 'https://us.hurb.com/aud/https://us.hurb.com?cmp=18055',
+          to: 'https://www.hurb.com/aud/https://www.hurb.com/br?cmp=18055',
           label: 'Hurb',
           position: 'right',
         },
@@ -37,7 +37,7 @@ module.exports = {
       {
         docs: {
           path: '../contents',
-          routeBasePath: '',
+          routeBasePath: '.',
           sidebarPath: require.resolve('./sidebars.js'),
         },
         theme: {
@@ -51,14 +51,6 @@ module.exports = {
       '@docusaurus/plugin-google-analytics',
       {
         trackingID: 'UA-26034544',
-      },
-    ],
-    [
-      '@docusaurus/plugin-sitemap',
-      {
-        cacheTime: 600 * 1000, // 600 sec - cache purge period
-        changefreq: 'weekly',
-        priority: 0.5,
       },
     ],
   ],
