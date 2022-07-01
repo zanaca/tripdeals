@@ -8,5 +8,5 @@ title: WIGGINS, Mississippi
 
 ##  3 star hotels - ⭐️⭐️⭐️
 
--    [Hampton Inn & Suites Wiggins](https://us.hurb.com/hotels/wiggins/hampton-inn-suites-wiggins-HT-48TV?cmp=18055) Prices from R$ 927,48
+-    [Hampton Inn & Suites Wiggins](https://www.hurb.com/br/aud/https://www.hurb.com/br/hotels/wiggins/hampton-inn-suites-wiggins-HT-48TV?cmp=18055) Prices from R$ 927,48
    > Se procura lazer e entretenimento, poderá contar com uma piscina exterior e uma sala de fitness.

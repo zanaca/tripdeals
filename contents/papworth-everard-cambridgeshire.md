@@ -8,5 +8,5 @@ title: Papworth Everard, Cambridgeshire
 
 ##  3 star hotels - ⭐️⭐️⭐️
 
--    [Island Inn](https://us.hurb.com/hotels/papworth-everard/island-inn-HT-3MOU?cmp=18055) Prices from R$ 313,33
+-    [Island Inn](https://www.hurb.com/br/aud/https://www.hurb.com/br/hotels/papworth-everard/island-inn-HT-3MOU?cmp=18055) Prices from R$ 313,33
    > Participe nas várias atividades recreativas do local, incluindo karaoke, ou aprecie soberbas vistas a partir do jardim. Entre as facilidades adicionais contam-se Wi-fi grátis, serviços de concierge e um televisor no espaço comum.

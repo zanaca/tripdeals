@@ -8,5 +8,5 @@ title: Tarascon-sur-Ariège, Occitanie
 
 ##  3 star hotels - ⭐️⭐️⭐️
 
--    [Le Manoir D'Agnes](https://us.hurb.com/hotels/tarascon-sur-ariege/le-manoir-d-agnes-HT-3WDZ?cmp=18055) Prices from R$ 735,87
+-    [Le Manoir D'Agnes](https://www.hurb.com/br/aud/https://www.hurb.com/br/hotels/tarascon-sur-ariege/le-manoir-d-agnes-HT-3WDZ?cmp=18055) Prices from R$ 735,87
    > Contemple fantásticas vistas a partir da açoteia e do jardim ou tire partido das várias comodidades e serviços ao seu dispor, incluindo Wi-fi grátis.
