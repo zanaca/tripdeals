@@ -1,1 +1,0 @@
-(window.webpackJsonp=window.webpackJsonp||[]).push([[407],{39:function(s){s.exports=JSON.parse('{"permalink":"/tripdeals/","source":"/Users/zanaca/dev/github-hack-product/docusaurus/website/src/pages/index.js"}')}}]);
