@@ -3,7 +3,6 @@ import classnames from 'classnames';
 import Layout from '@theme/Layout';
 import Link from '@docusaurus/Link';
 import useDocusaurusContext from '@docusaurus/useDocusaurusContext';
-import withBaseUrl from '@docusaurus/withBaseUrl';
 import styles from './styles.module.css';
 
 function Home() {
@@ -15,7 +14,7 @@ function Home() {
         <div className="container">
           <img
             className={classnames(styles.heroBannerLogo, 'margin-vert--md')}
-            src={withBaseUrl('img/logo.svg')}
+            src={'img/logo.svg'}
           />{' '}
           <h1 className="hero__title"> {siteConfig.title} </h1>{' '}
           <p className="hero__subtitle"> {siteConfig.tagline} </p>{' '}
@@ -25,7 +24,7 @@ function Home() {
                 'button button--primary button--lg',
                 styles.getStarted,
               )}
-              to={withBaseUrl('deals')}>
+              to={'deals'}>
               Get the deals→{' '}
             </Link>{' '}
           </div>{' '}
