@@ -3,12 +3,10 @@ id: kirchzarten-estado-de-baden-wurtemberg
 title: KIRCHZARTEN, Estado de Baden-Wurtemberg
 ---
 
-<center><img src="https://i.travelapi.com/hotels/24000000/23930000/23927700/23927624/6b5e27f0_z.jpg" alt="Featured Image" /></center>
+<center><img src="https://i.travelapi.com/hotels/2000000/1770000/1764300/1764286/abce9fa1_z.jpg" alt="" /></center>
 
 
 ##  3 star hotels - ⭐️⭐️⭐️
 
--    [Rainhof Scheune](https://www.hurb.com/br/hotels/kirchzarten/rainhof-scheune-JNP-JP384065?cmp=18055) Prices from R$491.02
-   > Pamper yourself with onsite massages or enjoy recreation amenities such as a sauna. Additional amenities at this hotel include complimentary wireless Internet access and tour/ticket assistance.
--    [Hotel & Restaurant Sonne - das kleine feine ***S](https://www.hurb.com/br/hotels/kirchzarten/hotel-restaurant-sonne-das-kleine-feine-s-JNP-JP487308?cmp=18055) Prices from R$545.61
-   > Relax at the full-service spa, where you can enjoy massages, body treatments, and facials. You can take advantage of recreational amenities such as a sauna and a fitness center. This hotel also features complimentary wireless Internet access, babysit
+-    [Hotel & Restaurant Sonne - das kleine feine ***S](https://us.hurb.com/hotels/kirchzarten/hotel-restaurant-sonne-das-kleine-feine-s-HT-78CV?cmp=18055) Prices from R$ 507,36
+   > Ceda à irresistível tentação de uma ida ao spa, e desfrute de massagens, tratamentos corporais e tratamentos faciais. Não perca as várias atividades de lazer e entretenimento, incluindo uma sauna e uma sala de fitness. Wi-Fi grátis, serviço de babysi
